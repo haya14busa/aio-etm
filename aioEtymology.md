@@ -1,841 +1,841 @@
 ### 1 ###
-[He] [grinned] [and] [said], "[I] [make] [lots] [of] [money]. [On] [weekdays] [I] [receive] [an] [average] [of] 50 [orders] [a] [day] [from] [all] [over] [the] [globe] [via] [the] [Internet]."
+[He]  [grinned]  [and]  [said] , "[I]  [make]  [lots]  [of]  [money] . [On]  [weekdays]  [I]  [receive]  [an]  [average]  [of]  50 [orders]  [a]  [day]  [from]  [all]  [over]  [the]  [globe]  [via]  [the]  [Internet] ."
 ### 2 ###
-"[What] [does] [your] [son] [do]?" "[Well], [he] [used] [to] [work] [for] [a] [multinational] [corporation], [but] [unfortunately] [he] [is] [unemployed] [at] [the] [moment]."
+"[What]  [does]  [your]  [son]  [do] ?" "[Well] , [he]  [used]  [to]  [work]  [for]  [a]  [multinational]  [corporation] , [but]  [unfortunately]  [he]  [is]  [unemployed]  [at]  [the]  [moment] ."
 ### 3 ###
-"[Guess] [what]! [I] [quit] [my] [full]-[time] [job] [last] [autumn] [and] [at] [present] [I]'[m] [traveling] [around] [the] [countryside]." "[You] [never] [cease] [to] [astonish] [me]!"
+"[Guess]  [what] ! [I]  [quit]  [my]  [full] -[time]  [job]  [last]  [autumn]  [and]  [at]  [present]  I'm [traveling]  [around]  [the]  [countryside] ." "[You]  [never]  [cease]  [to]  [astonish]  [me] !"
 ### 4 ###
-"[A] [few] [buttons] [are] [coming] [loose], [so] [I] [want] [you] [to] [sew] [them] [back] [on] [before] [they] [come] [off]. [I] [cherish] [this] [jacket] [because] [it] [was] [my] [late] [father]'[s]."
+"[A]  [few]  [buttons]  [are]  [coming]  [loose] , [so]  [I]  [want]  [you]  [to]  [sew]  [them]  [back]  [on]  [before]  [they]  [come]  [off] . [I]  [cherish]  [this]  [jacket]  [because]  [it]  [was]  [my]  [late]  father's."
 ### 5 ###
-"[Is] [Barbie] [moving] [to] [the] [suburbs]?" "[Believe] [it] [or] [not], [she] [is] [moving] [into] [your] [neighborhood]. [You] [may] [well] [bump] [into] [her] [one] [of] [these] [days]."
+"[Is]  [Barbie]  [moving]  [to]  [the]  [suburbs] ?" "[Believe]  [it]  [or]  [not] , [she]  [is]  [moving]  [into]  [your]  [neighborhood] . [You]  [may]  [well]  [bump]  [into]  [her]  [one]  [of]  [these]  [days] ."
 ### 6 ###
-"[By] [the] [way], [does] [anybody] [know] [what]'[s] [become] [of] [Jim]?" "[I] [do]. [I] [heard] [from] [him] [the] [week] [before] [last]. [He] [said] [he] [was] [earning] [a] [living] [as] [a] [guard]."
+"[By]  [the]  [way] , [does]  [anybody]  [know]  what's [become]  [of]  [Jim] ?" "[I]  [do] . [I]  [heard]  [from]  [him]  [the]  [week]  [before]  [last] . [He]  [said]  [he]  [was]  [earning]  [a]  [living]  [as]  [a]  [guard] ."
 ### 7 ###
-"[The] [dollar] [has] [strengthened] [against] [the] [major] [currencies]. [At] [the] [current] [exchange] [rate], [a] [dollar] [is] [equivalent] [to] 120 [yen]."
+"[The]  [dollar]  [has]  [strengthened]  [against]  [the]  [major]  [currencies] . [At]  [the]  [current]  [exchange]  [rate] , [a]  [dollar]  [is]  [equivalent]  [to]  120 [yen] ."
 ### 8 ###
-[Peggy] [said] [to] [herself], "[I]'[ve] [never] [been] [to] [such] [a] [boring], [horrible] [party] [before], [but] [I] [might] [as] [well] [look] [like] [I]'[m] [enjoying] [myself]."
+[Peggy]  [said]  [to]  [herself] , "I've [never]  [been]  [to]  [such]  [a]  [boring] , [horrible]  [party]  [before] , [but]  [I]  [might]  [as]  [well]  [look]  [like]  I'm [enjoying]  [myself] ."
 ### 9 ###
-[The] [blind] [and] [deaf] [person] [says] [that] [he] [has] [been] [struggling] [for] [many] [years] [but] [has] [now] [come] [to] [terms] [with] [his] [disability].
+[The]  [blind]  [and]  [deaf]  [person]  [says]  [that]  [he]  [has]  [been]  [struggling]  [for]  [many]  [years]  [but]  [has]  [now]  [come]  [to]  [terms]  [with]  [his]  [disability] .
 ### 10 ###
-"[He] [is] [normally] [punctual] [for] [appointments]. [Oh], [here] [he] [comes]. [Tony], [where] [on] [earth] [have] [you] [been]? [We]'[ve] [been] [waiting] [for] [you] [for] [ages]!"
+"[He]  [is]  [normally]  [punctual]  [for]  [appointments] . [Oh] , [here]  [he]  [comes] . [Tony] , [where]  [on]  [earth]  [have]  [you]  [been] ? We've [been]  [waiting]  [for]  [you]  [for]  [ages] !"
 ### 11 ###
-"[I]'[ve] [had] [a] [dull] [pain] [in] [my] [chest] [on] [and] [off] [for] [a] [couple] [of] [days]." "[Really]? [That]'[s] [too] [bad]. [Have] [you] [seen] [a] [proper] [doctor]?"
+"I've [had]  [a]  [dull]  [pain]  [in]  [my]  [chest]  [on]  [and]  [off]  [for]  [a]  [couple]  [of]  [days] ." "[Really] ? That's [too]  [bad] . [Have]  [you]  [seen]  [a]  [proper]  [doctor] ?"
 ### 12 ###
-[This] [lizard] [grows] [really] [fast]. [By] [the] [time] [it] [is] [a] [month] [old], [it] [will] [have] [doubled] [in] [length], [and] [within] [six] [months] [it] [will] [have] [reached] [as] [long] [as] 50 [cm].
+[This]  [lizard]  [grows]  [really]  [fast] . [By]  [the]  [time]  [it]  [is]  [a]  [month]  [old] , [it]  [will]  [have]  [doubled]  [in]  [length] , [and]  [within]  [six]  [months]  [it]  [will]  [have]  [reached]  [as]  [long]  [as]  50 [cm] .
 ### 13 ###
-[The] [other] [day], [I] [met] [Meg] [Brown] [for] [the] [first] [time] [in] [three] [years]. [She] [had] [changed] [so] [much] [that] [I] [didn]'[t] [recognize] [her] [right] [away].
+[The]  [other]  [day] , [I]  [met]  [Meg]  [Brown]  [for]  [the]  [first]  [time]  [in]  [three]  [years] . [She]  [had]  [changed]  [so]  [much]  [that]  [I]  didn't [recognize]  [her]  [right]  [away] .
 ### 14 ###
-[The] [presidential] [candidate] [got] [off] [the] [bus] [and] [shook] [hands] [in] [turn] [with] [each] [of] [his] [loyal] [supporters], [who] [had] [cheerfully] [greeted] [him].
+[The]  [presidential]  [candidate]  [got]  [off]  [the]  [bus]  [and]  [shook]  [hands]  [in]  [turn]  [with]  [each]  [of]  [his]  [loyal]  [supporters] , [who]  [had]  [cheerfully]  [greeted]  [him] .
 ### 15 ###
-[As] [the] [millionaire] [hadn]'[t] [drawn] [up] [his] [will], [Daniel], [his] [stepson] [and] [only] [heir], [inherited] [his] [entire] [estate] [upon] [his] [sudden] [death].
+[As]  [the]  [millionaire]  hadn't [drawn]  [up]  [his]  [will] , [Daniel] , [his]  [stepson]  [and]  [only]  [heir] , [inherited]  [his]  [entire]  [estate]  [upon]  [his]  [sudden]  [death] .
 ### 16 ###
-[A] [newspaper] [editorial] [implied] [that] [the] [tragic] [catastrophe] [had] [been] [caused] [by] [the] [workers] [who] [had] [paid] [little] [heed] [to] [safety] [procedures].
+[A]  [newspaper]  [editorial]  [implied]  [that]  [the]  [tragic]  [catastrophe]  [had]  [been]  [caused]  [by]  [the]  [workers]  [who]  [had]  [paid]  [little]  [heed]  [to]  [safety]  [procedures] .
 ### 17 ###
-[The] [crops] [were] [doing] [badly], [so] [the] [initial] [outlook] [was] [dismal]. [However], [as] [it] [turned] [out], [the] [actual] [grain] [harvest] [surpassed] [the] [bleak] [forecast].
+[The]  [crops]  [were]  [doing]  [badly] , [so]  [the]  [initial]  [outlook]  [was]  [dismal] . [However] , [as]  [it]  [turned]  [out] , [the]  [actual]  [grain]  [harvest]  [surpassed]  [the]  [bleak]  [forecast] .
 ### 18 ###
-[As] [of] [April] 1st, [postal] [rates] [will] [rise] [by] 5%. [On] [April] 2nd, [subway] [fares] [will] [be] [raised] [by] 10%. [Starting] [April] 3rd, [my] [allowance] [will] [be] [reduced] [by] [half].
+[As]  [of]  [April]  1st, [postal]  [rates]  [will]  [rise]  [by]  5%. [On]  [April]  2nd, [subway]  [fares]  [will]  [be]  [raised]  [by]  10%. [Starting]  [April]  3rd, [my]  [allowance]  [will]  [be]  [reduced]  [by]  [half] .
 ### 19 ###
-[I]'[m] [hoping] [for] [a] [pay] [raise]. [I] [recently] [got] [a] [master]'[s] [degree] [in] [business] [administration]. [It]'[s] [a] [qualification] [that] [entitles] [you] [to] [a] [higher] [salary].
+I'm [hoping]  [for]  [a]  [pay]  [raise] . [I]  [recently]  [got]  [a]  master's [degree]  [in]  [business]  [administration] . It's [a]  [qualification]  [that]  [entitles]  [you]  [to]  [a]  [higher]  [salary] .
 ### 20 ###
-[The] [visitors] [were] [due] [to] [arrive] [at] [the] [airport] [in] [less] [than] [two] [hours], [but] [their] [plane] [was] [delayed] [due] [to] [a] [suspected] [bomb] [in] [the] [baggage] [compartment].
+[The]  [visitors]  [were]  [due]  [to]  [arrive]  [at]  [the]  [airport]  [in]  [less]  [than]  [two]  [hours] , [but]  [their]  [plane]  [was]  [delayed]  [due]  [to]  [a]  [suspected]  [bomb]  [in]  [the]  [baggage]  [compartment] .
 ### 21 ###
-"[I]'[d] [like] [to] [talk] [to] [you] [in] [person]. [Are] [you] [available] [on] [Monday]?" "[Let] [me] [check] -- "[Monday] [isn]'[t] [convenient] [for] [me]. [Any] [day] [except] [Monday] [will] [do]."
+"I'd [like]  [to]  [talk]  [to]  [you]  [in]  [person] . [Are]  [you]  [available]  [on]  [Monday] ?" "[Let]  [me]  [check]  -- "[Monday]  isn't [convenient]  [for]  [me] . [Any]  [day]  [except]  [Monday]  [will]  [do] ."
 ### 22 ###
-[It] [can] [be] [summarized] [as] [follows]: [her] [so]-[called] [boyfriend] [talked] [her] [into] [bearing] [a] [large] [portion] [of] [his] [debts] [and] [then] [disappeared].
+[It]  [can]  [be]  [summarized]  [as]  [follows] : [her]  [so] -[called]  [boyfriend]  [talked]  [her]  [into]  [bearing]  [a]  [large]  [portion]  [of]  [his]  [debts]  [and]  [then]  [disappeared] .
 ### 23 ###
-[He] [whispered] [in] [my] [ear], "[This] [has] [to] [be] [an] [attractive] [deal] [for] [you]. [Think] [it] [over] [and] [let] [me] [know] [your] [answer] [as] [soon] [as] [possible]."
+[He]  [whispered]  [in]  [my]  [ear] , "[This]  [has]  [to]  [be]  [an]  [attractive]  [deal]  [for]  [you] . [Think]  [it]  [over]  [and]  [let]  [me]  [know]  [your]  [answer]  [as]  [soon]  [as]  [possible] ."
 ### 24 ###
-[The] [Simpsons] [were] [planning] [to] [go] [for] [a] [swim] [over] [the] [weekend], [but] [they] [had] [to] [call] [it] [off] [because] [of] [rough] [weather].
+[The]  [Simpsons]  [were]  [planning]  [to]  [go]  [for]  [a]  [swim]  [over]  [the]  [weekend] , [but]  [they]  [had]  [to]  [call]  [it]  [off]  [because]  [of]  [rough]  [weather] .
 ### 25 ###
-"[Can] [I] [try] [it] [on]?""[Certainly]. [Here] [you] [are].""[It] [fits] [perfectly]. [It] [goes] [well] [with] [my] [shirt]. [What] [do] [you] [think]?" "[You] [look] [marvelous]! [It] [matches] [your] [trousers], [as] [well]."
+"[Can]  [I]  [try]  [it]  [on] ?""[Certainly] . [Here]  [you]  [are] .""[It]  [fits]  [perfectly] . [It]  [goes]  [well]  [with]  [my]  [shirt] . [What]  [do]  [you]  [think] ?" "[You]  [look]  [marvelous] ! [It]  [matches]  [your]  [trousers] , [as]  [well] ."
 ### 26 ###
-"[Lately] [you]'[ve] [been] [getting] [a] [little] [lazy]." "[Well], [on] [the] [one] [hand] [I] [know] [I] [have] [to] [catch] [up] [with] [the] [others], [but] [on] [the] [other], [I] [can] [barely] [bring] [myself] [to] [study]."
+"[Lately]  you've [been]  [getting]  [a]  [little]  [lazy] ." "[Well] , [on]  [the]  [one]  [hand]  [I]  [know]  [I]  [have]  [to]  [catch]  [up]  [with]  [the]  [others] , [but]  [on]  [the]  [other] , [I]  [can]  [barely]  [bring]  [myself]  [to]  [study] ."
 ### 27 ###
-[According] [to] [the] [magazine] [article], [the] [once] [flourishing] [insurance] [company] [went] [bankrupt] [as] [a] [consequence] [of] [a] [series] [of] [poor] [management] [decisions].
+[According]  [to]  [the]  [magazine]  [article] , [the]  [once]  [flourishing]  [insurance]  [company]  [went]  [bankrupt]  [as]  [a]  [consequence]  [of]  [a]  [series]  [of]  [poor]  [management]  [decisions] .
 ### 28 ###
-"[To] [stay] [fit], [I] [ride] [my] [bike] [to] [and] [from] [work]. [What] [do] [you] [do] [to] [keep] [healthy]?" "[Nothing] [in] [particular], [but] [I] [use] [stairs] [instead] [of] [elevators]."
+"[To]  [stay]  [fit] , [I]  [ride]  [my]  [bike]  [to]  [and]  [from]  [work] . [What]  [do]  [you]  [do]  [to]  [keep]  [healthy] ?" "[Nothing]  [in]  [particular] , [but]  [I]  [use]  [stairs]  [instead]  [of]  [elevators] ."
 ### 29 ###
-[At] [the] [exhibition] [of] [contemporary] [sculpture], [Beth] [seemed] [excited]; [Pat] [appeared] [amazed]; [Jan] [looked] [fascinated]. [As] [for] [myself], [I] [was] [bored] [to] [death].
+[At]  [the]  [exhibition]  [of]  [contemporary]  [sculpture] , [Beth]  [seemed]  [excited] ; [Pat]  [appeared]  [amazed] ; [Jan]  [looked]  [fascinated] . [As]  [for]  [myself] , [I]  [was]  [bored]  [to]  [death] .
 ### 30 ###
-[Heavily] [drunk], [I] [mistook] [the] [contents] [of] [the] [glass] [for] [white] [wine] [and] [swallowed] [the] [thick] [liquid] [in] [one] [gulp]. [It] [tasted] [awful] -- [it] [was] [olive] [oil].
+[Heavily]  [drunk] , [I]  [mistook]  [the]  [contents]  [of]  [the]  [glass]  [for]  [white]  [wine]  [and]  [swallowed]  [the]  [thick]  [liquid]  [in]  [one]  [gulp] . [It]  [tasted]  [awful]  -- [it]  [was]  [olive]  [oil] .
 ### 31 ###
-[At] [the] [academic] [conference], [Dr]. [Adams] [of] [the] [XYZ] [Institute] [attributed] [changes] [in] [the] [climate] [to] [global] [warming] [and] [pollution] [of] [the] [atmosphere].
+[At]  [the]  [academic]  [conference] , [Dr] . [Adams]  [of]  [the]  [XYZ]  [Institute]  [attributed]  [changes]  [in]  [the]  [climate]  [to]  [global]  [warming]  [and]  [pollution]  [of]  [the]  [atmosphere] .
 ### 32 ###
-[An] [anonymous] [informer] [provided] [Scotland] [Yard] [with] [the] [whereabouts] [of] [the] [criminals] [who] [were] [wanted] [for] [theft] [and] [armed] [robbery].
+[An]  [anonymous]  [informer]  [provided]  [Scotland]  [Yard]  [with]  [the]  [whereabouts]  [of]  [the]  [criminals]  [who]  [were]  [wanted]  [for]  [theft]  [and]  [armed]  [robbery] .
 ### 33 ###
-"[It]'[s] [on] [fire]! [Hurry] [up] [and] [put] [it] [out]!" [she] [yelled], [but] [a] [delivery] [van], [parked] [in] [the] [way], [prevented] [the] [fire] [engine] [from] [passing] [through] [the] [alley].
+"It's [on]  [fire] ! [Hurry]  [up]  [and]  [put]  [it]  [out] !" [she]  [yelled] , [but]  [a]  [delivery]  [van] , [parked]  [in]  [the]  [way] , [prevented]  [the]  [fire]  [engine]  [from]  [passing]  [through]  [the]  [alley] .
 ### 34 ###
-[I] [must] [confess] [that] [at] [first] [I] [was] [highly] [suspicious] [of] [the] [peculiar] [herbal] [remedy], [but] [it] [cured] [me] [dramatically] [of] [my] [chronic] [sense] [of] [fatigue].
+[I]  [must]  [confess]  [that]  [at]  [first]  [I]  [was]  [highly]  [suspicious]  [of]  [the]  [peculiar]  [herbal]  [remedy] , [but]  [it]  [cured]  [me]  [dramatically]  [of]  [my]  [chronic]  [sense]  [of]  [fatigue] .
 ### 35 ###
-[In] [conclusion], [let] [me] [offer] [you] [a] [piece] [of] [advice]: [Learn] [a] [whole] [phrase] [or] [sentence] [by] [heart] [rather] [than] [memorize] [each] [word] [separately] [from] [the] [context].
+[In]  [conclusion] , [let]  [me]  [offer]  [you]  [a]  [piece]  [of]  [advice] : [Learn]  [a]  [whole]  [phrase]  [or]  [sentence]  [by]  [heart]  [rather]  [than]  [memorize]  [each]  [word]  [separately]  [from]  [the]  [context] .
 ### 36 ###
-[The] [biology] [teacher] [explained], "[Generally] [speaking], [female] [mammals] [do] [not] [lay] [eggs] [but] [give] [birth] [to] [babies] [and] [feed] [them] [breast] [milk]."
+[The]  [biology]  [teacher]  [explained] , "[Generally]  [speaking] , [female]  [mammals]  [do]  [not]  [lay]  [eggs]  [but]  [give]  [birth]  [to]  [babies]  [and]  [feed]  [them]  [breast]  [milk] ."
 ### 37 ###
-"[How] [I] [have] [longed] [to] [possess] [a] [jewel] [such] [as] [this]." "[How] [gorgeous]! [Was] [it] [expensive]?" "[I] [got] [it] [for] [free]. [My] [fiance] [gave] [it] [to] [me] [as] [a] [token] [of] [his] [love]."
+"[How]  [I]  [have]  [longed]  [to]  [possess]  [a]  [jewel]  [such]  [as]  [this] ." "[How]  [gorgeous] ! [Was]  [it]  [expensive] ?" "[I]  [got]  [it]  [for]  [free] . [My]  [fiance]  [gave]  [it]  [to]  [me]  [as]  [a]  [token]  [of]  [his]  [love] ."
 ### 38 ###
-[A] [friend] [of] [mine] [found] [this] [instruction] [manual] [for] [me], [but] [it] [has] [quite] [a] [few] [unfamiliar] [terms] [in] [it], [so] [I] [got] [myself] [a] [reference] [book] [to] [look] [up] [their] [definitions].
+[A]  [friend]  [of]  [mine]  [found]  [this]  [instruction]  [manual]  [for]  [me] , [but]  [it]  [has]  [quite]  [a]  [few]  [unfamiliar]  [terms]  [in]  [it] , [so]  [I]  [got]  [myself]  [a]  [reference]  [book]  [to]  [look]  [up]  [their]  [definitions] .
 ### 39 ###
-[I] [asked] [her] [a] [slightly] [personal] [question] [out] [of] [mere] [curiosity], [but] [she] [took] [it] [as] [an] [implicit] [insult] [and] [became] [furious] [with] [me].
+[I]  [asked]  [her]  [a]  [slightly]  [personal]  [question]  [out]  [of]  [mere]  [curiosity] , [but]  [she]  [took]  [it]  [as]  [an]  [implicit]  [insult]  [and]  [became]  [furious]  [with]  [me] .
 ### 40 ###
-[The] [grim]-[faced] [sergeant] [commanded] [in] [a] [voice] [of] [wrath], "[Be] [alert]! [It]'[s] [a] [matter] [of] [life] [and] [death]. [A] [moment]'[s] [hesitation] [will] [cost] [you] [your] [life]."
+[The]  [grim] -[faced]  [sergeant]  [commanded]  [in]  [a]  [voice]  [of]  [wrath] , "[Be]  [alert] ! It's [a]  [matter]  [of]  [life]  [and]  [death] . [A]  moment's [hesitation]  [will]  [cost]  [you]  [your]  [life] ."
 ### 41 ###
-[Kindergarten] [children] [were] [singing] [in] [chorus] [the] [joyful], [lively] [song] "[I] [Wish] [You] [a] [Merry] [Christmas] [and] [a] [Happy] [New] [Year]."
+[Kindergarten]  [children]  [were]  [singing]  [in]  [chorus]  [the]  [joyful] , [lively]  [song]  "[I]  [Wish]  [You]  [a]  [Merry]  [Christmas]  [and]  [a]  [Happy]  [New]  [Year] ."
 ### 42 ###
-"[I]'[m] [glad] [I]'[ve] [met] [a] [smart], [sincere] [man] [at] [last]!" "[I]'[m] [afraid] [you] [have] [yet] [to] [meet] [Mr]. [Right]. [I] [find] [Bob] [shallow] [and] [dishonest]. [You] [are] [mistaken] [about] [him]."
+"I'm [glad]  I've [met]  [a]  [smart] , [sincere]  [man]  [at]  [last] !" "I'm [afraid]  [you]  [have]  [yet]  [to]  [meet]  [Mr] . [Right] . [I]  [find]  [Bob]  [shallow]  [and]  [dishonest] . [You]  [are]  [mistaken]  [about]  [him] ."
 ### 43 ###
-[A] [relief] [fund] [was] [recently] [established] [for] [the] [victims] [of] [the] [quake] [that] [devastated] [the] [town] [and] [left] [numerous] [people] [homeless].
+[A]  [relief]  [fund]  [was]  [recently]  [established]  [for]  [the]  [victims]  [of]  [the]  [quake]  [that]  [devastated]  [the]  [town]  [and]  [left]  [numerous]  [people]  [homeless] .
 ### 44 ###
-"[First] [I] [married] [a] [dentist], [and] [then] [I] [divorced] [him] [after] [six] [months], [and] [now] [I]'[m] [engaged] [to] [a] [lawyer]!" "[I]'[ll] [keep] [my] [fingers] [crossed]."
+"[First]  [I]  [married]  [a]  [dentist] , [and]  [then]  [I]  [divorced]  [him]  [after]  [six]  [months] , [and]  [now]  I'm [engaged]  [to]  [a]  [lawyer] !" "I'll [keep]  [my]  [fingers]  [crossed] ."
 ### 45 ###
-"[I]'[m] [sorry] [to] [keep] [you] [waiting]. [I]'[ll] [be] [there] [in] [half] [an] [hour]. [I]'[ll] [buy] [you] [lunch] [to] [make] [up] [for] [this]." "[It]'[s] [okay]. [There]'[s] [no] [hurry], [so] [take] [your] [time]."
+"I'm [sorry]  [to]  [keep]  [you]  [waiting] . I'll [be]  [there]  [in]  [half]  [an]  [hour] . I'll [buy]  [you]  [lunch]  [to]  [make]  [up]  [for]  [this] ." "It's [okay] . There's [no]  [hurry] , [so]  [take]  [your]  [time] ."
 ### 46 ###
-[The] [thermometer] [registered] 96 [degrees] [Fahrenheit]. "[I] [could] [use] [a] [cold] [beer]," [muttered] [someone]. [We] [had] [beads] [of] [sweat] [dripping] [from] [our] [foreheads].
+[The]  [thermometer]  [registered]  96 [degrees]  [Fahrenheit] . "[I]  [could]  [use]  [a]  [cold]  [beer] ," [muttered]  [someone] . [We]  [had]  [beads]  [of]  [sweat]  [dripping]  [from]  [our]  [foreheads] .
 ### 47 ###
-[I] [had] [practiced] [my] [Italian], [so] [I] [thought] [I] [could] [communicate] [to] [some] [extent], [but] [I] [couldn]'[t] [make] [myself] [understood] [at] [all].
+[I]  [had]  [practiced]  [my]  [Italian] , [so]  [I]  [thought]  [I]  [could]  [communicate]  [to]  [some]  [extent] , [but]  [I]  couldn't [make]  [myself]  [understood]  [at]  [all] .
 ### 48 ###
-[He] [bowed], [thanked] [me] [for] [sparing] [the] [time] [to] [visit], [and] [said], "[The] [place] [is] [a] [mess], [but] [please] [take] [a] [seat] [and] [make] [yourself] [at] [home]."
+[He]  [bowed] , [thanked]  [me]  [for]  [sparing]  [the]  [time]  [to]  [visit] , [and]  [said] , "[The]  [place]  [is]  [a]  [mess] , [but]  [please]  [take]  [a]  [seat]  [and]  [make]  [yourself]  [at]  [home] ."
 ### 49 ###
-"[She] [really] [gets] [on] [my] [nerves]!" [He] [frowned]. "[Nobody] [could] [stop] [her] [from] [chattering]. [She] [is], [as] [it] [were], [an] [eternal] [chatterbox] [that] [drives] [everybody] [crazy]."
+"[She]  [really]  [gets]  [on]  [my]  [nerves] !" [He]  [frowned] . "[Nobody]  [could]  [stop]  [her]  [from]  [chattering] . [She]  [is] , [as]  [it]  [were] , [an]  [eternal]  [chatterbox]  [that]  [drives]  [everybody]  [crazy] ."
 ### 50 ###
-[I] [assigned] [the] [complex], [challenging] [task] [to] [Greg]. [In] [light] [of] [his] [ample] [experience] [as] [a] [troubleshooter], [I] [considered] [him] [to] [be] [the] [best] [suited] [to] [it].
+[I]  [assigned]  [the]  [complex] , [challenging]  [task]  [to]  [Greg] . [In]  [light]  [of]  [his]  [ample]  [experience]  [as]  [a]  [troubleshooter] , [I]  [considered]  [him]  [to]  [be]  [the]  [best]  [suited]  [to]  [it] .
 ### 51 ###
-[The] [prime] [minister] [announced], "[The] [Commerce] [Act] [will] [enable] [domestic] [steel] [mills] [to] [compete] [on] [equal] [terms] [with] [their] [foreign] [counterparts]."
+[The]  [prime]  [minister]  [announced] , "[The]  [Commerce]  [Act]  [will]  [enable]  [domestic]  [steel]  [mills]  [to]  [compete]  [on]  [equal]  [terms]  [with]  [their]  [foreign]  [counterparts] ."
 ### 52 ###
-"[What] [was] [the] [outcome] [of] [the] [preliminary] [talks]? [Did] [you] [get] [them] [to] [agree] [to] [our] [plan]?" "[It] [was] [flatly] [rejected]. [We] [couldn]'[t] [convince] [them] [to] [accept] [it]."
+"[What]  [was]  [the]  [outcome]  [of]  [the]  [preliminary]  [talks] ? [Did]  [you]  [get]  [them]  [to]  [agree]  [to]  [our]  [plan] ?" "[It]  [was]  [flatly]  [rejected] . [We]  couldn't [convince]  [them]  [to]  [accept]  [it] ."
 ### 53 ###
-[After] [all], [radical] [reformers] [tried] [in] [vain] [to] [persuade] [the] [conservative] [leadership] [to] [carry] [out] [bold] [health] [care] [reforms].
+[After]  [all] , [radical]  [reformers]  [tried]  [in]  [vain]  [to]  [persuade]  [the]  [conservative]  [leadership]  [to]  [carry]  [out]  [bold]  [health]  [care]  [reforms] .
 ### 54 ###
-[They] [allow] [us] [to] [use] [their] [harbor] [on] [the] [condition] [that] [our] [cargo] [vessel] [transports] [up] [to] [five] [tons] [of] [their] [freight] [for] [each] [trip], [free] [of] [charge].
+[They]  [allow]  [us]  [to]  [use]  [their]  [harbor]  [on]  [the]  [condition]  [that]  [our]  [cargo]  [vessel]  [transports]  [up]  [to]  [five]  [tons]  [of]  [their]  [freight]  [for]  [each]  [trip] , [free]  [of]  [charge] .
 ### 55 ###
-[Chocolate], [chewing] [gum], [and] [batteries] [are] [usually] [on] [sale] [beside] [checkout] [counters] [to] [encourage] [shoppers] [to] [buy] [them] [on] [impulse].
+[Chocolate] , [chewing]  [gum] , [and]  [batteries]  [are]  [usually]  [on]  [sale]  [beside]  [checkout]  [counters]  [to]  [encourage]  [shoppers]  [to]  [buy]  [them]  [on]  [impulse] .
 ### 56 ###
-[The] [Education] [Ministry] [called] [on] [high] [schools] [to] [place] [more] [emphasis] [on] [listening] [comprehension] [and] [conversational] [skills] [in] [English].
+[The]  [Education]  [Ministry]  [called]  [on]  [high]  [schools]  [to]  [place]  [more]  [emphasis]  [on]  [listening]  [comprehension]  [and]  [conversational]  [skills]  [in]  [English] .
 ### 57 ###
-[The] [lung] [cancer] [had] [spread] [to] [other] [organs]. [He] [was] [just] [given] [injections] [and] [medicines] [in] [order] [to] [help] [him] [cope] [with] [his] [aches] [and] [pains].
+[The]  [lung]  [cancer]  [had]  [spread]  [to]  [other]  [organs] . [He]  [was]  [just]  [given]  [injections]  [and]  [medicines]  [in]  [order]  [to]  [help]  [him]  [cope]  [with]  [his]  [aches]  [and]  [pains] .
 ### 58 ###
-[His] [mansion] [is] [furnished] [with] [many] [pieces] [of] [exquisite] [furniture], [and] [every] [other] [week], [his] [servant] [polishes] [them] [to] [make] [them] [shine].
+[His]  [mansion]  [is]  [furnished]  [with]  [many]  [pieces]  [of]  [exquisite]  [furniture] , [and]  [every]  [other]  [week] , [his]  [servant]  [polishes]  [them]  [to]  [make]  [them]  [shine] .
 ### 59 ###
-[The] [imaginative] [kids] [made] [believe] [they] [were] [shrewd] [private] [detectives] [and] [they] [searched] [the] [vacant] [building] [for] [clues] [to] [solve] [the] [imaginary] [mystery].
+[The]  [imaginative]  [kids]  [made]  [believe]  [they]  [were]  [shrewd]  [private]  [detectives]  [and]  [they]  [searched]  [the]  [vacant]  [building]  [for]  [clues]  [to]  [solve]  [the]  [imaginary]  [mystery] .
 ### 60 ###
-[There]'[s] [a] [small] [crack] [in] [the] [roof] [of] [the] [tool] [shed] [and] [it] [leaks], [so] [I]'[m] [going] [to] [have] [my] [husband] [mend] [it] [before] [the] [rainy] [season] [sets] [in].
+There's [a]  [small]  [crack]  [in]  [the]  [roof]  [of]  [the]  [tool]  [shed]  [and]  [it]  [leaks] , [so]  I'm [going]  [to]  [have]  [my]  [husband]  [mend]  [it]  [before]  [the]  [rainy]  [season]  [sets]  [in] .
 ### 61 ###
-"[Ted] [doesn]'[t] [let] [me] [work] [part]-[time], [nor] [does] [he] [permit] [me] [to] [go] [out] [by] [myself] [on] [his] [days] [off]." "[It] [sounds] [as] [if] [you] [are] [living] [in] [the] [feudal] [era]."
+"[Ted]  doesn't [let]  [me]  [work]  [part] -[time] , [nor]  [does]  [he]  [permit]  [me]  [to]  [go]  [out]  [by]  [myself]  [on]  [his]  [days]  [off] ." "[It]  [sounds]  [as]  [if]  [you]  [are]  [living]  [in]  [the]  [feudal]  [era] ."
 ### 62 ###
-[A] [big], [intimidating] [man] [turned] [up] [and] [then] [grasped] [me] [by] [the] [lapels]. "[I]'[ll] [make] [you] [pay] [even] [if] [you] [don]'[t] [want] [to]." [I] [had] [no] [choice] [but] [to] [obey] [him].
+[A]  [big] , [intimidating]  [man]  [turned]  [up]  [and]  [then]  [grasped]  [me]  [by]  [the]  [lapels] . "I'll [make]  [you]  [pay]  [even]  [if]  [you]  don't [want]  [to] ." [I]  [had]  [no]  [choice]  [but]  [to]  [obey]  [him] .
 ### 63 ###
-"[How] [much] [does] [it] [cost] [to] [have] [a] [flat] [tire] [repaired]?" "[As] [far] [as] [I] [can] [remember], [it] [costs] [at] [least] 10 [pounds]. [You] [might] [want] [to] [fix] [it] [yourself]."
+"[How]  [much]  [does]  [it]  [cost]  [to]  [have]  [a]  [flat]  [tire]  [repaired] ?" "[As]  [far]  [as]  [I]  [can]  [remember] , [it]  [costs]  [at]  [least]  10 [pounds] . [You]  [might]  [want]  [to]  [fix]  [it]  [yourself] ."
 ### 64 ###
-[Uncle] [Bob]'[s] [drugstore] [was] [broken] [into] [last] [month], [so] [he] [took] [precautions]: [he] [had] [a] [burglar] [alarm] [and] [a] [surveillance] [camera] [installed].
+[Uncle]  Bob's [drugstore]  [was]  [broken]  [into]  [last]  [month] , [so]  [he]  [took]  [precautions] : [he]  [had]  [a]  [burglar]  [alarm]  [and]  [a]  [surveillance]  [camera]  [installed] .
 ### 65 ###
-[If] [we] [are] [to] [get] [our] [recycling] [project] [accepted] [by] [manufacturing] [firms], [we] [need] [to] [get] [many] [more] [people] [to] [take] [part] [in] [our] [nationwide] [campaign].
+[If]  [we]  [are]  [to]  [get]  [our]  [recycling]  [project]  [accepted]  [by]  [manufacturing]  [firms] , [we]  [need]  [to]  [get]  [many]  [more]  [people]  [to]  [take]  [part]  [in]  [our]  [nationwide]  [campaign] .
 ### 66 ###
-[Dr]. [Gold] [holds] [her] [fellow] [professor] [in] [contempt]; [I] [have] [heard] [her] [say] [at] [times], "[He] [may] [be] [something] [of] [a] [celebrity] [but] [he] [is] [not] [much] [of] [a] [scholar]."
+[Dr] . [Gold]  [holds]  [her]  [fellow]  [professor]  [in]  [contempt] ; [I]  [have]  [heard]  [her]  [say]  [at]  [times] , "[He]  [may]  [be]  [something]  [of]  [a]  [celebrity]  [but]  [he]  [is]  [not]  [much]  [of]  [a]  [scholar] ."
 ### 67 ###
-[To] [my] [horror], [I] [saw] [a] [toddler] [slip] [and] [fall] [off] [the] [edge] [of] [the] [vertical] [cliff], [and] [to] [my] [great] [relief], [it] [was] [but] [a] [dream].
+[To]  [my]  [horror] , [I]  [saw]  [a]  [toddler]  [slip]  [and]  [fall]  [off]  [the]  [edge]  [of]  [the]  [vertical]  [cliff] , [and]  [to]  [my]  [great]  [relief] , [it]  [was]  [but]  [a]  [dream] .
 ### 68 ###
-"[As] [a] [child]," [he] [mused], "[I] [derived] [great] [pleasure] [from] [watching] [bullet] [trains] [come] [and] [go] [against] [the] [background] [of] [Mt]. [Fuji]."
+"[As]  [a]  [child] ," [he]  [mused] , "[I]  [derived]  [great]  [pleasure]  [from]  [watching]  [bullet]  [trains]  [come]  [and]  [go]  [against]  [the]  [background]  [of]  [Mt] . [Fuji] ."
 ### 69 ###
-[I] [saw] [a] [drunken] [Rick] [swearing] [and] [cursing]. [He] [appeared] [to] [have] [stumbled] [on] [a] [curb] [and] [hit] [his] [forehead] [and] [elbow] [against] [a] [trash] [can].
+[I]  [saw]  [a]  [drunken]  [Rick]  [swearing]  [and]  [cursing] . [He]  [appeared]  [to]  [have]  [stumbled]  [on]  [a]  [curb]  [and]  [hit]  [his]  [forehead]  [and]  [elbow]  [against]  [a]  [trash]  [can] .
 ### 70 ###
-[The] [foreman] [said], "[We] [felt] [ourselves] [betrayed] [by] [the] [owner] [when] [we] [found] [out] [by] [chance] [that] [he] [had] [intended] [to] [sell] [our] [factory] [and] [run] [away]."
+[The]  [foreman]  [said] , "[We]  [felt]  [ourselves]  [betrayed]  [by]  [the]  [owner]  [when]  [we]  [found]  [out]  [by]  [chance]  [that]  [he]  [had]  [intended]  [to]  [sell]  [our]  [factory]  [and]  [run]  [away] ."
 ### 71 ###
-[I] [often] [hear] [it] [said] [that] [only] [a] [handful] [of] [high]-[ranking] [officials] [in] [that] [division] [play] [a] [dominant] [role] [in] [shaping] [the] [fiscal] [policy] [of] [our] [country].
+[I]  [often]  [hear]  [it]  [said]  [that]  [only]  [a]  [handful]  [of]  [high] -[ranking]  [officials]  [in]  [that]  [division]  [play]  [a]  [dominant]  [role]  [in]  [shaping]  [the]  [fiscal]  [policy]  [of]  [our]  [country] .
 ### 72 ###
-[I] [was] [wandering] [around] [in] [the] [cathedral] [when] [I] [heard] [the] [hymn] "[The] [Lord] [is] [My] [Shepherd]"[being] [sung] [by] [a] [choir] [in] [the] [chapel].
+[I]  [was]  [wandering]  [around]  [in]  [the]  [cathedral]  [when]  [I]  [heard]  [the]  [hymn]  "[The]  [Lord]  [is]  [My]  [Shepherd] "[being]  [sung]  [by]  [a]  [choir]  [in]  [the]  [chapel] .
 ### 73 ###
-[The] [ruling] [party] [was] [sharply] [split] [by] [internal] [strife], [so] [an] [emergency] [session] [was] [called] [to] [reconcile] [the] [hostile] [factions].
+[The]  [ruling]  [party]  [was]  [sharply]  [split]  [by]  [internal]  [strife] , [so]  [an]  [emergency]  [session]  [was]  [called]  [to]  [reconcile]  [the]  [hostile]  [factions] .
 ### 74 ###
-"[Are] [you] [a] [freshman]?" "[No], [I]'[m] [a] [sophomore]." "[What]'[s] [your] [major]?" "[I] [am] [majoring] [in] [French] [literature] [and] [architecture]. [I]'[m] [interested] [in] [French] [art]."
+"[Are]  [you]  [a]  [freshman] ?" "[No] , I'm [a]  [sophomore] ." "What's [your]  [major] ?" "[I]  [am]  [majoring]  [in]  [French]  [literature]  [and]  [architecture] . I'm [interested]  [in]  [French]  [art] ."
 ### 75 ###
-"[How] [about] [Jill]? [Is] [she] [for] [or] [against] [abortion]?" "[She]'[s] [a] [devout] [Catholic]. [She]'[s] [opposed] [to] [it] [under] [any] [circumstances]. [What] [about] [yourself]?"
+"[How]  [about]  [Jill] ? [Is]  [she]  [for]  [or]  [against]  [abortion] ?" "She's [a]  [devout]  [Catholic] . She's [opposed]  [to]  [it]  [under]  [any]  [circumstances] . [What]  [about]  [yourself] ?"
 ### 76 ###
-[The] [following] [chapter] [is] [mainly] [concerned] [with] [the] [beneficial] [influence] [of] [moderate] [exercise] [on] [health] [and] [well]-[being].
+[The]  [following]  [chapter]  [is]  [mainly]  [concerned]  [with]  [the]  [beneficial]  [influence]  [of]  [moderate]  [exercise]  [on]  [health]  [and]  [well] -[being] .
 ### 77 ###
-[The] [voluntary] [organization] [has] [been] [highly] [praised] [for] [its] [consistent] [effort] [to] [create] [a] [fair] [and] [just] [society] [by] [getting] [rid] [of] [racism] [and] [sexism].
+[The]  [voluntary]  [organization]  [has]  [been]  [highly]  [praised]  [for]  [its]  [consistent]  [effort]  [to]  [create]  [a]  [fair]  [and]  [just]  [society]  [by]  [getting]  [rid]  [of]  [racism]  [and]  [sexism] .
 ### 78 ###
-[The] [survey] [results] [have] [already] [been] [transmitted] [to] [headquarters], [where] [all] [the] [data] [are] [now] [being] [processed] [and] [analyzed].
+[The]  [survey]  [results]  [have]  [already]  [been]  [transmitted]  [to]  [headquarters] , [where]  [all]  [the]  [data]  [are]  [now]  [being]  [processed]  [and]  [analyzed] .
 ### 79 ###
-[I] [was] [robbed] [of] [my] [purse], [and] [to] [make] [matters] [worse], [it] [contained] [my] [passport], [wallet], [and] [credit] [cards] -- [everything] [essential] [for] [my] [trip].
+[I]  [was]  [robbed]  [of]  [my]  [purse] , [and]  [to]  [make]  [matters]  [worse] , [it]  [contained]  [my]  [passport] , [wallet] , [and]  [credit]  [cards]  -- [everything]  [essential]  [for]  [my]  [trip] .
 ### 80 ###
-[In] [those] [days], [the] [Japanese] [were] [mocked] [overseas]. [They] [were] [looked] [upon] [as] [a] [nation] [of] [workaholics] [preoccupied] [with] [economic] [prosperity].
+[In]  [those]  [days] , [the]  [Japanese]  [were]  [mocked]  [overseas] . [They]  [were]  [looked]  [upon]  [as]  [a]  [nation]  [of]  [workaholics]  [preoccupied]  [with]  [economic]  [prosperity] .
 ### 81 ###
-[The] [reckless] [driver] [was] [stopped] [for] [speeding] [at] [nearly] 100 [mph] [in] [his] [Porsche]. [He] [was] [fined] 100 [pounds] [and] [had] [his] [driver]'[s] [license] [suspended].
+[The]  [reckless]  [driver]  [was]  [stopped]  [for]  [speeding]  [at]  [nearly]  100 [mph]  [in]  [his]  [Porsche] . [He]  [was]  [fined]  100 [pounds]  [and]  [had]  [his]  driver's [license]  [suspended] .
 ### 82 ###
-[The] [collapse] [of] [the] [communist] [regime] [allowed] [Western] [journalists] [access] [to] [the] [sort] [of] [information] [that] [they] [had] [been] [denied] [before].
+[The]  [collapse]  [of]  [the]  [communist]  [regime]  [allowed]  [Western]  [journalists]  [access]  [to]  [the]  [sort]  [of]  [information]  [that]  [they]  [had]  [been]  [denied]  [before] .
 ### 83 ###
-[Their] [exceptional] [success] [was] [made] [possible] [in] [part] [by] [their] [innovative] [corporate] [strategy] [and] [in] [part] [by] [their] [advantageous] [geographical] [position].
+[Their]  [exceptional]  [success]  [was]  [made]  [possible]  [in]  [part]  [by]  [their]  [innovative]  [corporate]  [strategy]  [and]  [in]  [part]  [by]  [their]  [advantageous]  [geographical]  [position] .
 ### 84 ###
-[Needless] [to] [say], [I] [was] [envious] [of] [Mick], [for] [he] [was] [considered] [indispensable] [to] [the] [team], [and] [I] [was] [seen] [as] [a] [nuisance] [and] [a] [burden].
+[Needless]  [to]  [say] , [I]  [was]  [envious]  [of]  [Mick] , [for]  [he]  [was]  [considered]  [indispensable]  [to]  [the]  [team] , [and]  [I]  [was]  [seen]  [as]  [a]  [nuisance]  [and]  [a]  [burden] .
 ### 85 ###
-"[A] [column] [of] [vapor] [was] [seen] [rising] [from] [the] [crater] [several] [hours] [before] [the] [volcano] [erupted]. [Now] [we] [see] [a] [huge] [volume] [of] [lava] [flowing] [down]."
+"[A]  [column]  [of]  [vapor]  [was]  [seen]  [rising]  [from]  [the]  [crater]  [several]  [hours]  [before]  [the]  [volcano]  [erupted] . [Now]  [we]  [see]  [a]  [huge]  [volume]  [of]  [lava]  [flowing]  [down] ."
 ### 86 ###
-[The] [janitor] [was] [fired] [merely] [a] [week] [after] [he] [was] [hired]. [He] [was] [discovered] [trying] [to] [crack] [the] [safe] [to] [steal] [the] [money] [and] [valuables] [in] [it].
+[The]  [janitor]  [was]  [fired]  [merely]  [a]  [week]  [after]  [he]  [was]  [hired] . [He]  [was]  [discovered]  [trying]  [to]  [crack]  [the]  [safe]  [to]  [steal]  [the]  [money]  [and]  [valuables]  [in]  [it] .
 ### 87 ###
-[I] [was] [what] [they] [call] [a] [juvenile] [delinquent]. [I] [was] [caught] [shoplifting] [and] [expelled] [from] [school]. [I] [was] [arrested] [for] [assault] [and] [vandalism].
+[I]  [was]  [what]  [they]  [call]  [a]  [juvenile]  [delinquent] . [I]  [was]  [caught]  [shoplifting]  [and]  [expelled]  [from]  [school] . [I]  [was]  [arrested]  [for]  [assault]  [and]  [vandalism] .
 ### 88 ###
-[I] [hear] [that], [formerly], [miners] [in] [this] [deserted] [village] [were] [made] [to] [work] [as] [slaves], [and] [that] [they] [lived] [in] [crude], [primitive] [surroundings].
+[I]  [hear]  [that] , [formerly] , [miners]  [in]  [this]  [deserted]  [village]  [were]  [made]  [to]  [work]  [as]  [slaves] , [and]  [that]  [they]  [lived]  [in]  [crude] , [primitive]  [surroundings] .
 ### 89 ###
-[None] [of] [those] [youngsters] [have] [been] [heard] [to] [utter] [a] [firm] "[thank]-[you]." [Furthermore], [they] [don]'[t] [even] [have] [the] [courtesy] [to] [say] "[please]."
+[None]  [of]  [those]  [youngsters]  [have]  [been]  [heard]  [to]  [utter]  [a]  [firm]  "[thank] -[you] ." [Furthermore] , [they]  don't [even]  [have]  [the]  [courtesy]  [to]  [say]  "[please] ."
 ### 90 ###
-[Sue] [and] [I] [were] [supposed] [to] [have] [a] [terrific] [vacation], [but] [instead], [we] [had] [a] [terrible] [row] [over] [trifles] [and] [finally] [broke] [up].
+[Sue]  [and]  [I]  [were]  [supposed]  [to]  [have]  [a]  [terrific]  [vacation] , [but]  [instead] , [we]  [had]  [a]  [terrible]  [row]  [over]  [trifles]  [and]  [finally]  [broke]  [up] .
 ### 91 ###
-[Besides] [the] [mortgage] [loan] [and] [the] [charges] [for] [water], [gas], [electricity], [and] [so] [on], [we] [are] [supposed] [to] [pay] [income] [and] [consumption] [tax].
+[Besides]  [the]  [mortgage]  [loan]  [and]  [the]  [charges]  [for]  [water] , [gas] , [electricity] , [and]  [so]  [on] , [we]  [are]  [supposed]  [to]  [pay]  [income]  [and]  [consumption]  [tax] .
 ### 92 ###
-[Public] [servants] [are] [expected] [to] [meet] [the] [needs] [of] [every] [citizen], [regardless] [of] [their] [race], [sex], [creed], [and] [social] [status].
+[Public]  [servants]  [are]  [expected]  [to]  [meet]  [the]  [needs]  [of]  [every]  [citizen] , [regardless]  [of]  [their]  [race] , [sex] , [creed] , [and]  [social]  [status] .
 ### 93 ###
-"[What] [with] [one] [thing] [and] [another], [I] [forgot] [to] [reserve] [a] [table] [for] [tomorrow] [night]. [The] [chances] [are] [the] [restaurant] [is] [fully] [booked] [by] [now]."
+"[What]  [with]  [one]  [thing]  [and]  [another] , [I]  [forgot]  [to]  [reserve]  [a]  [table]  [for]  [tomorrow]  [night] . [The]  [chances]  [are]  [the]  [restaurant]  [is]  [fully]  [booked]  [by]  [now] ."
 ### 94 ###
-"[Write] [an] [essay] [on] [whether] [or] [not] [the] [death] [penalty] [should] [be] [abolished]. [Remember] [to] [go] [over] [your] [paper] [for] [spelling] [errors] [before] [you] [hand] [it] [in]."
+"[Write]  [an]  [essay]  [on]  [whether]  [or]  [not]  [the]  [death]  [penalty]  [should]  [be]  [abolished] . [Remember]  [to]  [go]  [over]  [your]  [paper]  [for]  [spelling]  [errors]  [before]  [you]  [hand]  [it]  [in] ."
 ### 95 ###
-"[What] [is] [your] [main] [priority]?" "[We] [aim] [to] [pursue] [our] [ultimate] [goal] [of] [equal] [opportunities] [for] [minorities] [at] [the] [expense] [of] [short]-[term] [needs]."
+"[What]  [is]  [your]  [main]  [priority] ?" "[We]  [aim]  [to]  [pursue]  [our]  [ultimate]  [goal]  [of]  [equal]  [opportunities]  [for]  [minorities]  [at]  [the]  [expense]  [of]  [short] -[term]  [needs] ."
 ### 96 ###
-[In] [the] [face] [of] [overwhelming] [odds], [the] [Imperial] [Navy] [managed] [to] [win] [the] [decisive] [battle], [thanks] [to] [the] [admiral]'[s] [skillful] [tactics].
+[In]  [the]  [face]  [of]  [overwhelming]  [odds] , [the]  [Imperial]  [Navy]  [managed]  [to]  [win]  [the]  [decisive]  [battle] , [thanks]  [to]  [the]  admiral's [skillful]  [tactics] .
 ### 97 ###
-[The] [earnest], [inflexible] [police] [officer] [declared], "[My] [duty] [is] [to] [ensure] [that] [the] [law] [is] [obeyed], [so] [I] [am] [careful] [not] [to] [overlook] [any] [trivial] [offense]."
+[The]  [earnest] , [inflexible]  [police]  [officer]  [declared] , "[My]  [duty]  [is]  [to]  [ensure]  [that]  [the]  [law]  [is]  [obeyed] , [so]  [I]  [am]  [careful]  [not]  [to]  [overlook]  [any]  [trivial]  [offense] ."
 ### 98 ###
-[In] [the] [beginning], [I] [resolved] [not] [to] [give] [in], [but] [in] [the] [end] [I] [yielded] [to] [his] [repeated] [requests] [to] [purchase] [a] [brand]-[new] [motorcycle].
+[In]  [the]  [beginning] , [I]  [resolved]  [not]  [to]  [give]  [in] , [but]  [in]  [the]  [end]  [I]  [yielded]  [to]  [his]  [repeated]  [requests]  [to]  [purchase]  [a]  [brand] -[new]  [motorcycle] .
 ### 99 ###
-[Apparently], [the] [border] [incident] [was] [intended] [to] [coincide] [with] [the] [festival] [to] [celebrate] [the] [second] [anniversary] [of] [our] [independence].
+[Apparently] , [the]  [border]  [incident]  [was]  [intended]  [to]  [coincide]  [with]  [the]  [festival]  [to]  [celebrate]  [the]  [second]  [anniversary]  [of]  [our]  [independence] .
 ### 100 ###
-[The] [black] [population] [gave] [a] [shriek] [of] [delight] [when] [the] [former] [prisoner] [became] [the] [first] [black] [person] [to] [be] [elected] [President] [in] [South] [Africa].
+[The]  [black]  [population]  [gave]  [a]  [shriek]  [of]  [delight]  [when]  [the]  [former]  [prisoner]  [became]  [the]  [first]  [black]  [person]  [to]  [be]  [elected]  [President]  [in]  [South]  [Africa] .
 ### 101 ###
-[The] [weakness] [of] [the] [UN] [was] [revealed] [in] [yet] [another] [futile] [attempt] [to] [work] [out] [a] [peaceful] [solution] [to] [the] [regional] [warfare].
+[The]  [weakness]  [of]  [the]  [UN]  [was]  [revealed]  [in]  [yet]  [another]  [futile]  [attempt]  [to]  [work]  [out]  [a]  [peaceful]  [solution]  [to]  [the]  [regional]  [warfare] .
 ### 102 ###
-[I] [have] [two] [infants] [to] [look] [after]. [I] [change] [their] [diapers] [and] [wipe] [off] [spilled] [food], [all] [day] [long], [day] [after] [day]. [It]'[s] [so] [tiring] [that] [you] [need] [infinite] [patience].
+[I]  [have]  [two]  [infants]  [to]  [look]  [after] . [I]  [change]  [their]  [diapers]  [and]  [wipe]  [off]  [spilled]  [food] , [all]  [day]  [long] , [day]  [after]  [day] . It's [so]  [tiring]  [that]  [you]  [need]  [infinite]  [patience] .
 ### 103 ###
-"[We]'[re] [going] [shopping] [in] [Wal]-[Mart]. [Would] [you] [like] [to] [join] [us]?" "[I]'[d] [love] [to], [but] [the] [thing] [is], [I] [have] [some] [urgent] [business] [to] [attend] [to]."
+"We're [going]  [shopping]  [in]  [Wal] -[Mart] . [Would]  [you]  [like]  [to]  [join]  [us] ?" "I'd [love]  [to] , [but]  [the]  [thing]  [is] , [I]  [have]  [some]  [urgent]  [business]  [to]  [attend]  [to] ."
 ### 104 ###
-[Municipal] [governments] [are] [independent] [of] [central] [government] [in] [the] [selection] [of] [sites] [on] [which] [to] [build] [waste] [disposal] [centers].
+[Municipal]  [governments]  [are]  [independent]  [of]  [central]  [government]  [in]  [the]  [selection]  [of]  [sites]  [on]  [which]  [to]  [build]  [waste]  [disposal]  [centers] .
 ### 105 ###
-[The] [man] [in] [black] [stopped] [to] [light] [a] [cigarette], [pondered] [for] [a] [second], [then] [turned] [around] [and] [began] [to] [trot] [in] [the] [opposite] [direction].
+[The]  [man]  [in]  [black]  [stopped]  [to]  [light]  [a]  [cigarette] , [pondered]  [for]  [a]  [second] , [then]  [turned]  [around]  [and]  [began]  [to]  [trot]  [in]  [the]  [opposite]  [direction] .
 ### 106 ###
-[The] [chemistry] [teacher] [took] [great] [pains] [to] [illustrate] [the] [meaning] [of] [the] [complicated] [formula] [by] [using] [a] [diagram] [and] [laboratory] [apparatus].
+[The]  [chemistry]  [teacher]  [took]  [great]  [pains]  [to]  [illustrate]  [the]  [meaning]  [of]  [the]  [complicated]  [formula]  [by]  [using]  [a]  [diagram]  [and]  [laboratory]  [apparatus] .
 ### 107 ###
-[The] [traveler] [dozed] [off] [on] [a] [bench] [in] [the] [tranquil] [square]. [After] [a] [while], [he] [woke] [up] [to] [find] [that] [his] [luggage] [had] [vanished] [without] [a] [trace].
+[The]  [traveler]  [dozed]  [off]  [on]  [a]  [bench]  [in]  [the]  [tranquil]  [square] . [After]  [a]  [while] , [he]  [woke]  [up]  [to]  [find]  [that]  [his]  [luggage]  [had]  [vanished]  [without]  [a]  [trace] .
 ### 108 ###
-[Longevity] [runs] [in] [my] [family]: [my] [great] [grandfather] [lived] [to] [be] 102, [my] [grandfather] [is] [still] [active] [for] [a] [man] [approaching] 90, [and] [I] [have] [never] [fallen] [ill].
+[Longevity]  [runs]  [in]  [my]  [family] : [my]  [great]  [grandfather]  [lived]  [to]  [be]  102, [my]  [grandfather]  [is]  [still]  [active]  [for]  [a]  [man]  [approaching]  90, [and]  [I]  [have]  [never]  [fallen]  [ill] .
 ### 109 ###
-[The] [locally] [organized] [rescue] [party] [set] [off] [at] [dawn] [in] [search] [of] [the] [missing] [hikers], [only] [to] [come] [back] [empty]-[handed] [at] [dusk].
+[The]  [locally]  [organized]  [rescue]  [party]  [set]  [off]  [at]  [dawn]  [in]  [search]  [of]  [the]  [missing]  [hikers] , [only]  [to]  [come]  [back]  [empty] -[handed]  [at]  [dusk] .
 ### 110 ###
-"[Sorry] [to] [interrupt], [but] [we]'[re] [now] [discussing] [what] [it] [takes] [to] [curb] [tax] [evasion]. [Please] [confine] [your] [statements] [to] [the] [subject] [in] [question]."
+"[Sorry]  [to]  [interrupt] , [but]  we're [now]  [discussing]  [what]  [it]  [takes]  [to]  [curb]  [tax]  [evasion] . [Please]  [confine]  [your]  [statements]  [to]  [the]  [subject]  [in]  [question] ."
 ### 111 ###
-[Chris] [was] [awfully] [upset] [to] [learn] [that] [his] [wife] [had] [passed] [away], [yet] [he] [was] [courageous] [enough] [not] [to] [exhibit] [his] [grief] [in] [our] [presence].
+[Chris]  [was]  [awfully]  [upset]  [to]  [learn]  [that]  [his]  [wife]  [had]  [passed]  [away] , [yet]  [he]  [was]  [courageous]  [enough]  [not]  [to]  [exhibit]  [his]  [grief]  [in]  [our]  [presence] .
 ### 112 ###
-[I] [keep] [in] [touch] [with] [a] [distant] [relative] [who] [runs] [a] [pawnshop]. [He] [said] [he] [was] [very] [fortunate] [to] [acquire] [a] [valuable] [china] [ornament] [for] [next] [to] [nothing].
+[I]  [keep]  [in]  [touch]  [with]  [a]  [distant]  [relative]  [who]  [runs]  [a]  [pawnshop] . [He]  [said]  [he]  [was]  [very]  [fortunate]  [to]  [acquire]  [a]  [valuable]  [china]  [ornament]  [for]  [next]  [to]  [nothing] .
 ### 113 ###
-"[It]'[s] [up] [to] [you], [Tim]. [You] [are] [responsible] [for] [the] [puppy] [and] [the] [kitten]. [I]'[m] [too] [busy] [to] [take] [care] [of] [them], [OK]?" "[Sure]. [You] [can] [count] [on] [me]."
+"It's [up]  [to]  [you] , [Tim] . [You]  [are]  [responsible]  [for]  [the]  [puppy]  [and]  [the]  [kitten] . I'm [too]  [busy]  [to]  [take]  [care]  [of]  [them] , [OK] ?" "[Sure] . [You]  [can]  [count]  [on]  [me] ."
 ### 114 ###
-[Puffing] [and] [panting], [Joe] [groaned], "[Could] [you] [slow] [down] [a] [bit]? [I]'[m] [out] [of] [breath], [and] [I] [can]'[t] [run] [fast] [enough] [to] [keep] [up] [with] [you]."
+[Puffing]  [and]  [panting] , [Joe]  [groaned] , "[Could]  [you]  [slow]  [down]  [a]  [bit] ? I'm [out]  [of]  [breath] , [and]  [I]  can't [run]  [fast]  [enough]  [to]  [keep]  [up]  [with]  [you] ."
 ### 115 ###
-"[What]'[s] [keeping] [you]? [I]'[m] [very] [anxious] [to] [get] [there] [on] [time]. [The] [tickets] [will] [be] [sold] [out] [soon]." "[I] [can]'[t] [decide] [which] [sweater] [I] [should] [wear]."
+"What's [keeping]  [you] ? I'm [very]  [anxious]  [to]  [get]  [there]  [on]  [time] . [The]  [tickets]  [will]  [be]  [sold]  [out]  [soon] ." "[I]  can't [decide]  [which]  [sweater]  [I]  [should]  [wear] ."
 ### 116 ###
-[Little] [by] [little], [the] [housewife] [grew] [weary] [of] [doing] [monotonous] [household] [chores] [and] [was] [eager] [to] [seek] [something] [more] [stimulating].
+[Little]  [by]  [little] , [the]  [housewife]  [grew]  [weary]  [of]  [doing]  [monotonous]  [household]  [chores]  [and]  [was]  [eager]  [to]  [seek]  [something]  [more]  [stimulating] .
 ### 117 ###
-"[He] [is] [easy] [to] [offend] [and] [impossible] [to] [please]. [He] [is] [rather] [difficult] [to] [get] [along] [with], [to] [say] [the] [least]." "[A] [good] [boss] [is] [hard] [to] [come] [by]."
+"[He]  [is]  [easy]  [to]  [offend]  [and]  [impossible]  [to]  [please] . [He]  [is]  [rather]  [difficult]  [to]  [get]  [along]  [with] , [to]  [say]  [the]  [least] ." "[A]  [good]  [boss]  [is]  [hard]  [to]  [come]  [by] ."
 ### 118 ###
-"[How] [do] [you] [like] [this] [condo]?" "[To] [be] [honest], [it] [leaves] [a] [lot] [to] [be] [desired]. [The] [price] [is] [relatively] [high], [and] [what]'[s] [more], [it]'[s] [badly] [located]."
+"[How]  [do]  [you]  [like]  [this]  [condo] ?" "[To]  [be]  [honest] , [it]  [leaves]  [a]  [lot]  [to]  [be]  [desired] . [The]  [price]  [is]  [relatively]  [high] , [and]  what's [more] , it's [badly]  [located] ."
 ### 119 ###
-"[Do] [you] [think] [of] [me] [as] [a] [nobody]? [To] [tell] [you] [the] [truth], [I]'[m] [sick] [and] [tired] [of] [just] [serving] [tea], [answering] [the] [phone], [photocopying] [and] [so] [forth], [day] [in], [day] [out]."
+"[Do]  [you]  [think]  [of]  [me]  [as]  [a]  [nobody] ? [To]  [tell]  [you]  [the]  [truth] , I'm [sick]  [and]  [tired]  [of]  [just]  [serving]  [tea] , [answering]  [the]  [phone] , [photocopying]  [and]  [so]  [forth] , [day]  [in] , [day]  [out] ."
 ### 120 ###
-[That] [secretary] [is] [proud], [among] [other] [things], [of] [her] [remarkable] [linguistic] [ability]. [She] [speaks] [Spanish] [and] [Italian] [fluently], [to] [say] [nothing] [of] [English].
+[That]  [secretary]  [is]  [proud] , [among]  [other]  [things] , [of]  [her]  [remarkable]  [linguistic]  [ability] . [She]  [speaks]  [Spanish]  [and]  [Italian]  [fluently] , [to]  [say]  [nothing]  [of]  [English] .
 ### 121 ###
-[At] [the] [time], [dense] [fog] [restricted] [visibility] [to] [ten] [meters], [so] [motorists] [couldn]'[t] [even] [make] [out] [traffic] [lights], [not] [to] [mention] [road] [signs].
+[At]  [the]  [time] , [dense]  [fog]  [restricted]  [visibility]  [to]  [ten]  [meters] , [so]  [motorists]  couldn't [even]  [make]  [out]  [traffic]  [lights] , [not]  [to]  [mention]  [road]  [signs] .
 ### 122 ###
-[The] [smugglers] [are] [alleged] [to] [have] [earned] [no] [less] [than] 300,000 [dollars] [per] [person] [from] [the] [forbidden] [sale] [of] [ivory] [and] [lumber].
+[The]  [smugglers]  [are]  [alleged]  [to]  [have]  [earned]  [no]  [less]  [than]  300,000 [dollars]  [per]  [person]  [from]  [the]  [forbidden]  [sale]  [of]  [ivory]  [and]  [lumber] .
 ### 123 ###
-[I] [heard] [the] [malicious] [rumor] [was] [circulated] [by] [a] [former] [employee] [who] [is] [said] [to] [have] [held] [a] [grudge] [against] [the] [employer] [for] [dismissing] [him].
+[I]  [heard]  [the]  [malicious]  [rumor]  [was]  [circulated]  [by]  [a]  [former]  [employee]  [who]  [is]  [said]  [to]  [have]  [held]  [a]  [grudge]  [against]  [the]  [employer]  [for]  [dismissing]  [him] .
 ### 124 ###
-[The] [psychiatrist] [said], "[His] [mental] [illness] [seems] [to] [have] [been] [induced] [by] [the] [long]-[term] [stress] [of] [dealing] [exclusively] [with] [customers]' [complaints]."
+[The]  [psychiatrist]  [said] , "[His]  [mental]  [illness]  [seems]  [to]  [have]  [been]  [induced]  [by]  [the]  [long] -[term]  [stress]  [of]  [dealing]  [exclusively]  [with]  customers' [complaints] ."
 ### 125 ###
-[Preserving] [our] [cultural] [heritage] [is] [of] [utmost] [importance]. [Likewise], [it] [is] [most] [important] [to] [hand] [down] [our] [traditional] [values] [from] [generation] [to] [generation].
+[Preserving]  [our]  [cultural]  [heritage]  [is]  [of]  [utmost]  [importance] . [Likewise] , [it]  [is]  [most]  [important]  [to]  [hand]  [down]  [our]  [traditional]  [values]  [from]  [generation]  [to]  [generation] .
 ### 126 ###
-"[Would] [you] [mind] [lending] [me] [some] [money]? [I]'[m] [short] [of] [cash]." "[You] [already] [owe] [me] 80 [bucks]. [This] [time] [you] [will] [pay] [it] [back] [with] [interest]."
+"[Would]  [you]  [mind]  [lending]  [me]  [some]  [money] ? I'm [short]  [of]  [cash] ." "[You]  [already]  [owe]  [me]  80 [bucks] . [This]  [time]  [you]  [will]  [pay]  [it]  [back]  [with]  [interest] ."
 ### 127 ###
-[He] [made] [a] [solemn] [vow] [to] [give] [up] [gambling], [but] [before] [long] [he] [violated] [that] [pledge], [and] [I] [will] [not] [put] [up] [with] [him] [any] [longer].
+[He]  [made]  [a]  [solemn]  [vow]  [to]  [give]  [up]  [gambling] , [but]  [before]  [long]  [he]  [violated]  [that]  [pledge] , [and]  [I]  [will]  [not]  [put]  [up]  [with]  [him]  [any]  [longer] .
 ### 128 ###
-[This] [is] [what] [I] [did] [to] [lose] [weight]. [First], [I] [took] [up] [swimming], [and] [second], [I] [avoided] [eating] [between] [meals], [and] [lastly], [I] [cut] [down] [on] [high]-[calorie] [foods].
+[This]  [is]  [what]  [I]  [did]  [to]  [lose]  [weight] . [First] , [I]  [took]  [up]  [swimming] , [and]  [second] , [I]  [avoided]  [eating]  [between]  [meals] , [and]  [lastly] , [I]  [cut]  [down]  [on]  [high] -[calorie]  [foods] .
 ### 129 ###
-[The] [ambitious] [general] [conquered] [the] [kingdom] [and] [ascended] [the] [throne]; [the] [monarch] [escaped] [being] [executed] [but] [was] [banished] [for] [life].
+[The]  [ambitious]  [general]  [conquered]  [the]  [kingdom]  [and]  [ascended]  [the]  [throne] ; [the]  [monarch]  [escaped]  [being]  [executed]  [but]  [was]  [banished]  [for]  [life] .
 ### 130 ###
-[I] [can]'[t] [help] [thinking] [she] [isn]'[t] [fit] [for] [a] [teaching] [job]. [It] [is] [true] [her] [English] [is] [excellent], [but] [when] [it] [comes] [to] [teaching], [she] [is] [a] [little] [too] [self]-[righteous].
+[I]  can't [help]  [thinking]  [she]  isn't [fit]  [for]  [a]  [teaching]  [job] . [It]  [is]  [true]  [her]  [English]  [is]  [excellent] , [but]  [when]  [it]  [comes]  [to]  [teaching] , [she]  [is]  [a]  [little]  [too]  [self] -[righteous] .
 ### 131 ###
-[Originally], [the] [suspect] [denied] [ever] [being] [involved] [in] [conspiracy] [to] [murder], [but] [afterward] [conscience] [compelled] [him] [to] [admit] [it].
+[Originally] , [the]  [suspect]  [denied]  [ever]  [being]  [involved]  [in]  [conspiracy]  [to]  [murder] , [but]  [afterward]  [conscience]  [compelled]  [him]  [to]  [admit]  [it] .
 ### 132 ###
-"[She] [is] [such] [a] [calm], [refined] [lady] [that] [I] [can]'[t] [possibly] [imagine] [her] [using] [such] [foul], [vulgar] [language]." "[I] [guess] [she] [was] [temporarily] [insane]."
+"[She]  [is]  [such]  [a]  [calm] , [refined]  [lady]  [that]  [I]  can't [possibly]  [imagine]  [her]  [using]  [such]  [foul] , [vulgar]  [language] ." "[I]  [guess]  [she]  [was]  [temporarily]  [insane] ."
 ### 133 ###
-"[You] [can]'[t] [take] [advantage] [of] [your] [position] [as] [a] [woman] [now]. [I] [remember] [your] [objecting] [to] [being] [treated] [as] [one]." "[I] [don]'[t] [remember] [saying] [that]!"
+"[You]  can't [take]  [advantage]  [of]  [your]  [position]  [as]  [a]  [woman]  [now] . [I]  [remember]  [your]  [objecting]  [to]  [being]  [treated]  [as]  [one] ." "[I]  don't [remember]  [saying]  [that] !"
 ### 134 ###
-[I]'[ll] [never] [forget] [feeling] [so] [nervous] [on] [that] [job] [interview]. [While] [waiting] [my] [turn], [I] [was] [so] [tense] [I] [could] [feel] [my] [heart] [beating] [in] [my] [throat].
+I'll [never]  [forget]  [feeling]  [so]  [nervous]  [on]  [that]  [job]  [interview] . [While]  [waiting]  [my]  [turn] , [I]  [was]  [so]  [tense]  [I]  [could]  [feel]  [my]  [heart]  [beating]  [in]  [my]  [throat] .
 ### 135 ###
-[I] [ran] [out] [of] [patience] [and] [told] [him], "[You] [are] [not] [too] [particular] [about] [what] [you] [wear], [so] [why] [don]'[t] [you] [try] [wearing] [a] [different] [tie] [for] [a] [change]?"
+[I]  [ran]  [out]  [of]  [patience]  [and]  [told]  [him] , "[You]  [are]  [not]  [too]  [particular]  [about]  [what]  [you]  [wear] , [so]  [why]  don't [you]  [try]  [wearing]  [a]  [different]  [tie]  [for]  [a]  [change] ?"
 ### 136 ###
-[After] [reviewing] [our] [present] [mode] [of] [operation], [the] [consultant] [pointed] [out] [that] [it] [needed] [modifying] [to] [reflect] [the] [conditions] [facing] [us].
+[After]  [reviewing]  [our]  [present]  [mode]  [of]  [operation] , [the]  [consultant]  [pointed]  [out]  [that]  [it]  [needed]  [modifying]  [to]  [reflect]  [the]  [conditions]  [facing]  [us] .
 ### 137 ###
-[The] [respected] [physicist] [emphasized] [the] [necessity] [of] [increasing] [the] [quality] [of] [science] [education] [in] [primary] [and] [secondary] [schools].
+[The]  [respected]  [physicist]  [emphasized]  [the]  [necessity]  [of]  [increasing]  [the]  [quality]  [of]  [science]  [education]  [in]  [primary]  [and]  [secondary]  [schools] .
 ### 138 ###
-[Kate] [insisted] [on] [giving] [me] [English] [lessons] [in] [exchange] [for] [my] [teaching] [her] [the] [art] [of] [flower] [arrangement] [and] [the] [rituals] [of] [the] [tea] [ceremony].
+[Kate]  [insisted]  [on]  [giving]  [me]  [English]  [lessons]  [in]  [exchange]  [for]  [my]  [teaching]  [her]  [the]  [art]  [of]  [flower]  [arrangement]  [and]  [the]  [rituals]  [of]  [the]  [tea]  [ceremony] .
 ### 139 ###
-[Instead] [of] [responding] [submissively] [to] [our] [reproach], [he] [came] [up] [with] [an] [elaborate], [contradictory] [excuse] [to] [justify] [his] [conduct].
+[Instead]  [of]  [responding]  [submissively]  [to]  [our]  [reproach] , [he]  [came]  [up]  [with]  [an]  [elaborate] , [contradictory]  [excuse]  [to]  [justify]  [his]  [conduct] .
 ### 140 ###
-"[I]'[m] [not] [accustomed] [to] [handling] [such] [delicate] [cases], [so] [I] [don]'[t] [know] [if] [I] [can] [carry] [on] [with] [this]." "[Don]'[t] [worry]. [Sooner] [or] [later] [you]'[ll] [get] [used] [to] [it]."
+"I'm [not]  [accustomed]  [to]  [handling]  [such]  [delicate]  [cases] , [so]  [I]  don't [know]  [if]  [I]  [can]  [carry]  [on]  [with]  [this] ." "Don't [worry] . [Sooner]  [or]  [later]  you'll [get]  [used]  [to]  [it] ."
 ### 141 ###
-[In] [addition] [to] [being] [a] [noted] [philosopher], [Professor] [Scott] [is] [a] [distinguished] [authority] [on] [Greek] [legends], [folk] [tales], [myths], [and] [fables].
+[In]  [addition]  [to]  [being]  [a]  [noted]  [philosopher] , [Professor]  [Scott]  [is]  [a]  [distinguished]  [authority]  [on]  [Greek]  [legends] , [folk]  [tales] , [myths] , [and]  [fables] .
 ### 142 ###
-[When] [he] [contemplated] [committing] [suicide], [he] [was] [in] [the] [depths] [of] [despair] [at] [the] [prospect] [of] [never] [regaining] [his] [reputation] [again].
+[When]  [he]  [contemplated]  [committing]  [suicide] , [he]  [was]  [in]  [the]  [depths]  [of]  [despair]  [at]  [the]  [prospect]  [of]  [never]  [regaining]  [his]  [reputation]  [again] .
 ### 143 ###
-[The] [papers] [denounced] [the] [premier] [for] [not] [having] [taken] [any] [effective] [measures] [to] [help] [reverse] [the] [gradual] [decline] [in] [people]'[s] [standard] [of] [living].
+[The]  [papers]  [denounced]  [the]  [premier]  [for]  [not]  [having]  [taken]  [any]  [effective]  [measures]  [to]  [help]  [reverse]  [the]  [gradual]  [decline]  [in]  people's [standard]  [of]  [living] .
 ### 144 ###
-[A] [sightseeing] [bus] [pulled] [up] [in] [front] [of] [the] [railroad] [station], [picked] [up] [dozens] [of] [tourists], [and] [pulled] [out] [into] [heavy] [traffic].
+[A]  [sightseeing]  [bus]  [pulled]  [up]  [in]  [front]  [of]  [the]  [railroad]  [station] , [picked]  [up]  [dozens]  [of]  [tourists] , [and]  [pulled]  [out]  [into]  [heavy]  [traffic] .
 ### 145 ###
-[In] [the] [exciting] [adventure] [game], [the] [player] [starts] [in] [neutral] [territory], [penetrates] [the] [floating] [castle], [and] [hunts] [for] [the] [hidden] [treasures].
+[In]  [the]  [exciting]  [adventure]  [game] , [the]  [player]  [starts]  [in]  [neutral]  [territory] , [penetrates]  [the]  [floating]  [castle] , [and]  [hunts]  [for]  [the]  [hidden]  [treasures] .
 ### 146 ###
-[I] [had] [a] [terrifying] [nightmare]: [one] [ugly] [monster] [after] [another] [emerged] [from] [the] [bushes] [and] [my] [legs] [were] [trapped] [in] [mud].
+[I]  [had]  [a]  [terrifying]  [nightmare] : [one]  [ugly]  [monster]  [after]  [another]  [emerged]  [from]  [the]  [bushes]  [and]  [my]  [legs]  [were]  [trapped]  [in]  [mud] .
 ### 147 ###
-[An] [investigating] [committee] [was] [hastily] [set] [up] [to] [look] [into] [the] [election] [fraud] [involving] [the] [governor] [and] [his] [closest] [aides].
+[An]  [investigating]  [committee]  [was]  [hastily]  [set]  [up]  [to]  [look]  [into]  [the]  [election]  [fraud]  [involving]  [the]  [governor]  [and]  [his]  [closest]  [aides] .
 ### 148 ###
-[The] [competent] [principal] [hit] [upon] [a] [novel] [and] [sensible] [approach] [to] [the] [perpetual] [problem] [confronting] [his] [elementary] [school].
+[The]  [competent]  [principal]  [hit]  [upon]  [a]  [novel]  [and]  [sensible]  [approach]  [to]  [the]  [perpetual]  [problem]  [confronting]  [his]  [elementary]  [school] .
 ### 149 ###
-[Lawmakers] [have] [just] [started] [deliberating] [the] [new] [legislation] [banning] [the] [possession] [of] [firearms]. [There] [is] [still] [a] [long] [way] [to] [go] [before] [it] [is] [implemented].
+[Lawmakers]  [have]  [just]  [started]  [deliberating]  [the]  [new]  [legislation]  [banning]  [the]  [possession]  [of]  [firearms] . [There]  [is]  [still]  [a]  [long]  [way]  [to]  [go]  [before]  [it]  [is]  [implemented] .
 ### 150 ###
-[Our] [point] [of] [view] [regarding] [conservation] [is] [entirely] [different] [from] [that] [of] [Americans]. [However], [they] [tend] [to] [think] [we] [have] [the] [same] [perspective] [as] [they] [do].
+[Our]  [point]  [of]  [view]  [regarding]  [conservation]  [is]  [entirely]  [different]  [from]  [that]  [of]  [Americans] . [However] , [they]  [tend]  [to]  [think]  [we]  [have]  [the]  [same]  [perspective]  [as]  [they]  [do] .
 ### 151 ###
-[The] [casual] [remark] [the] [mayor] [made] [concerning] [ethnic] [minorities] [provoked] [a] [lot] [of] [dismay], [outrage], [and] [criticism] [from] [all] [sides].
+[The]  [casual]  [remark]  [the]  [mayor]  [made]  [concerning]  [ethnic]  [minorities]  [provoked]  [a]  [lot]  [of]  [dismay] , [outrage] , [and]  [criticism]  [from]  [all]  [sides] .
 ### 152 ###
-[The] [historian] [said], "[These] [funny] [satires] [were] [inspired] [by] [the] [hypocrisy] [of] [the] [detested] [dictator] [who] [pretended] [that] [everything] [was] [in] [order]."
+[The]  [historian]  [said] , "[These]  [funny]  [satires]  [were]  [inspired]  [by]  [the]  [hypocrisy]  [of]  [the]  [detested]  [dictator]  [who]  [pretended]  [that]  [everything]  [was]  [in]  [order] ."
 ### 153 ###
-[The] [principal] [focus] [of] [the] [newly] [introduced] [educational] [program] [is] [on] [cultivating] [and] [developing] [pupils]' [mental] [and] [critical] [faculties].
+[The]  [principal]  [focus]  [of]  [the]  [newly]  [introduced]  [educational]  [program]  [is]  [on]  [cultivating]  [and]  [developing]  pupils' [mental]  [and]  [critical]  [faculties] .
 ### 154 ###
-[It] [seemed] [likely] [that] [the] [waste] [buried] [in] [the] [drained] [swamps] [would] [contaminate] [the] [soil], [but] [that] [information] [was] [withheld] [from] [area] [residents].
+[It]  [seemed]  [likely]  [that]  [the]  [waste]  [buried]  [in]  [the]  [drained]  [swamps]  [would]  [contaminate]  [the]  [soil] , [but]  [that]  [information]  [was]  [withheld]  [from]  [area]  [residents] .
 ### 155 ###
-[This] [military] [base] [accommodates] [various] [facilities] [including] [two] [separate] [underground] [silos] [designed] [to] [withstand] [any] [nuclear] [attacks].
+[This]  [military]  [base]  [accommodates]  [various]  [facilities]  [including]  [two]  [separate]  [underground]  [silos]  [designed]  [to]  [withstand]  [any]  [nuclear]  [attacks] .
 ### 156 ###
-[Here] [are] [examples] [of] [arithmetic] [calculations]: [Two] [point] [five] [multiplied] [by] [four] [equals] [ten]; [seven] [divided] [by] [three] [is] [two] [with] [a] [remainder] [of] [one].
+[Here]  [are]  [examples]  [of]  [arithmetic]  [calculations] : [Two]  [point]  [five]  [multiplied]  [by]  [four]  [equals]  [ten] ; [seven]  [divided]  [by]  [three]  [is]  [two]  [with]  [a]  [remainder]  [of]  [one] .
 ### 157 ###
-[Similarly], [fallen] [tax] [revenue] [resulted] [in] [a] [cut] [in] [public] [expenditure], [which] [in] [turn] [caused] [great] [hardship] [for] [the] [construction] [industry].
+[Similarly] , [fallen]  [tax]  [revenue]  [resulted]  [in]  [a]  [cut]  [in]  [public]  [expenditure] , [which]  [in]  [turn]  [caused]  [great]  [hardship]  [for]  [the]  [construction]  [industry] .
 ### 158 ###
-[Developed] [countries] [imposed] [sanctions], [mostly] [import] [restrictions], [on] [Iraq] [for] [invading] [and] [occupying] [its] [affluent] [neighbor].
+[Developed]  [countries]  [imposed]  [sanctions] , [mostly]  [import]  [restrictions] , [on]  [Iraq]  [for]  [invading]  [and]  [occupying]  [its]  [affluent]  [neighbor] .
 ### 159 ###
-[Looking] [back] [on] [days] [gone] [by], [Kenny] [said], "[This] [is] [where] [I] [hung] [out] [a] [lot]. [These] [photos] [remind] [me] [of] [the] [joys] [and] [sorrows] [of] [my] [adolescence]."
+[Looking]  [back]  [on]  [days]  [gone]  [by] , [Kenny]  [said] , "[This]  [is]  [where]  [I]  [hung]  [out]  [a]  [lot] . [These]  [photos]  [remind]  [me]  [of]  [the]  [joys]  [and]  [sorrows]  [of]  [my]  [adolescence] ."
 ### 160 ###
-[It] [was] [a] [dream] [come] [true]. [After] [many] [years] [of] [endeavor], [the] [hard]-[working] [engineers] [invented] [an] [epoch]-[making] [electronic] [device].
+[It]  [was]  [a]  [dream]  [come]  [true] . [After]  [many]  [years]  [of]  [endeavor] , [the]  [hard] -[working]  [engineers]  [invented]  [an]  [epoch] -[making]  [electronic]  [device] .
 ### 161 ###
-[I]'[m] [having] [a] [hard] [time] [talking] [them] [out] [of] [fighting] [a] [custody] [battle]. [Neither] [of] [them] [is] [willing] [to] [part] [with] [their] [five]-[year]-[old] [son].
+I'm [having]  [a]  [hard]  [time]  [talking]  [them]  [out]  [of]  [fighting]  [a]  [custody]  [battle] . [Neither]  [of]  [them]  [is]  [willing]  [to]  [part]  [with]  [their]  [five] -[year] -[old]  [son] .
 ### 162 ###
-[The] [humble] [priest] [spent] [the] [rest] [of] [his] [life] [caring] [for] [the] [poor], [the] [sick], [and] [the] [disabled] [in] [a] [number] [of] [developing] [countries].
+[The]  [humble]  [priest]  [spent]  [the]  [rest]  [of]  [his]  [life]  [caring]  [for]  [the]  [poor] , [the]  [sick] , [and]  [the]  [disabled]  [in]  [a]  [number]  [of]  [developing]  [countries] .
 ### 163 ###
-[Whistling] [his] [favorite] [theme] [tune], [the] [stout] [man] [took] [off] [his] [underwear], [wrapped] [a] [towel] [around] [his] [waist], [and] [got] [into] [the] [sauna].
+[Whistling]  [his]  [favorite]  [theme]  [tune] , [the]  [stout]  [man]  [took]  [off]  [his]  [underwear] , [wrapped]  [a]  [towel]  [around]  [his]  [waist] , [and]  [got]  [into]  [the]  [sauna] .
 ### 164 ###
-[Leaving] [their] [children] [behind] [by] [themselves], [they] [traveled] [on] [foot] [to] [the] [Mediterranean] [coast] [and] [headed] [by] [sea] [for] [their] [native] [land].
+[Leaving]  [their]  [children]  [behind]  [by]  [themselves] , [they]  [traveled]  [on]  [foot]  [to]  [the]  [Mediterranean]  [coast]  [and]  [headed]  [by]  [sea]  [for]  [their]  [native]  [land] .
 ### 165 ###
-"[Look] [out]!" [I] [cried] [out] [in] [spite] [of] [myself] [when] [a] [boy], [chasing] [a] [ball], [ran] [out] [in] [front] [of] [a] [speeding] [dump] [truck] [and] [came] [close] [to] [being] [run] [over].
+"[Look]  [out] !" [I]  [cried]  [out]  [in]  [spite]  [of]  [myself]  [when]  [a]  [boy] , [chasing]  [a]  [ball] , [ran]  [out]  [in]  [front]  [of]  [a]  [speeding]  [dump]  [truck]  [and]  [came]  [close]  [to]  [being]  [run]  [over] .
 ### 166 ###
-[Emma] [was] [so] [late] [getting] [back]. [I] [paced] [back] [and] [forth] [in] [the] [lobby], [waiting] [for] [her] [to] [come] [back]. [I] [was] [worried] [something] [might] [have] [happened] [to] [her].
+[Emma]  [was]  [so]  [late]  [getting]  [back] . [I]  [paced]  [back]  [and]  [forth]  [in]  [the]  [lobby] , [waiting]  [for]  [her]  [to]  [come]  [back] . [I]  [was]  [worried]  [something]  [might]  [have]  [happened]  [to]  [her] .
 ### 167 ###
-[I] [deliberately] [flattered] [her] [on] [her] [hairstyle] [and] [attire], [hoping] [and] [praying] [that] [her] [attention] [would] [be] [distracted] [from] [the] [blunder] [I] [had] [made].
+[I]  [deliberately]  [flattered]  [her]  [on]  [her]  [hairstyle]  [and]  [attire] , [hoping]  [and]  [praying]  [that]  [her]  [attention]  [would]  [be]  [distracted]  [from]  [the]  [blunder]  [I]  [had]  [made] .
 ### 168 ###
-[Seconds] [after] [its] [spectacular] [launch], [the] [spacecraft] [with] [seven] [astronauts] [on] [board] [blew] [up] [and] [came] [apart], [striking] [the] [viewers] [dumb] [with] [shock].
+[Seconds]  [after]  [its]  [spectacular]  [launch] , [the]  [spacecraft]  [with]  [seven]  [astronauts]  [on]  [board]  [blew]  [up]  [and]  [came]  [apart] , [striking]  [the]  [viewers]  [dumb]  [with]  [shock] .
 ### 169 ###
-[A] [truck] [loaded] [with] [sacks] [of] [wheat] [and] [beans] [skidded] [on] [the] [slippery] [road] [and] [flipped] [onto] [its] [side], [completely] [obstructing] [the] [freeway].
+[A]  [truck]  [loaded]  [with]  [sacks]  [of]  [wheat]  [and]  [beans]  [skidded]  [on]  [the]  [slippery]  [road]  [and]  [flipped]  [onto]  [its]  [side] , [completely]  [obstructing]  [the]  [freeway] .
 ### 170 ###
-[Eddy] [startled] [me] [by] [tapping] [me] [on] [the] [shoulder]. [Absorbed] [in] [my] [reading], [I] [didn]'[t] [notice] [him] [sneaking] [in]. [He] [frequently] [plays] [such] [childish] [pranks].
+[Eddy]  [startled]  [me]  [by]  [tapping]  [me]  [on]  [the]  [shoulder] . [Absorbed]  [in]  [my]  [reading] , [I]  didn't [notice]  [him]  [sneaking]  [in] . [He]  [frequently]  [plays]  [such]  [childish]  [pranks] .
 ### 171 ###
-[The] [naughty] [student], [accompanied] [by] [his] [strict] [father], [came] [to] [the] [teachers]' [room] [and] [apologized] [to] [us] [for] [his] [rudeness] [and] [bad] [behavior].
+[The]  [naughty]  [student] , [accompanied]  [by]  [his]  [strict]  [father] , [came]  [to]  [the]  teachers' [room]  [and]  [apologized]  [to]  [us]  [for]  [his]  [rudeness]  [and]  [bad]  [behavior] .
 ### 172 ###
-[Contrary] [to] [what] [we] [had] [expected], [the] [jury] [returned] [a] [unanimous] [verdict] [of] [not] [guilty], [and] [the] [defendant], [embraced] [by] [his] [attorney], [wept] [with] [joy].
+[Contrary]  [to]  [what]  [we]  [had]  [expected] , [the]  [jury]  [returned]  [a]  [unanimous]  [verdict]  [of]  [not]  [guilty] , [and]  [the]  [defendant] , [embraced]  [by]  [his]  [attorney] , [wept]  [with]  [joy] .
 ### 173 ###
-[The] [bridesmaid] [read] [out] [the] [telegrams] [of] [congratulations], [followed] [by] [the] [best] [man], [who] [proposed] [a] [toast] [to] [the] [bride] [and] [groom].
+[The]  [bridesmaid]  [read]  [out]  [the]  [telegrams]  [of]  [congratulations] , [followed]  [by]  [the]  [best]  [man] , [who]  [proposed]  [a]  [toast]  [to]  [the]  [bride]  [and]  [groom] .
 ### 174 ###
-"[Compared] [with] [Bill] [and] [Sam], [Ken] [is] [very] [considerate] -- [he] [always] [stands] [by] [me], [and] [whenever] [I] [feel] [like] [grumbling], [he] [is] [ready] [to] [listen]."
+"[Compared]  [with]  [Bill]  [and]  [Sam] , [Ken]  [is]  [very]  [considerate]  -- [he]  [always]  [stands]  [by]  [me] , [and]  [whenever]  [I]  [feel]  [like]  [grumbling] , [he]  [is]  [ready]  [to]  [listen] ."
 ### 175 ###
-[Fishermen] [refer] [to] [the] [tiny] [rocky] [island] [as] "[gunboat] [island]" [because], [seen] [from] [a] [distance], [it] [somewhat] [resembles] [a] [battleship].
+[Fishermen]  [refer]  [to]  [the]  [tiny]  [rocky]  [island]  [as]  "[gunboat]  [island] " [because] , [seen]  [from]  [a]  [distance] , [it]  [somewhat]  [resembles]  [a]  [battleship] .
 ### 176 ###
-"[Don]'[t] [quote] [me] [on] [this], [but] [judging] [from] [his] [speech] [at] [the] [board] [meeting], [the] [CEO]'[s] [disposition] [is] [not] [optimistic]; [it] [is], [if] [anything], [on] [the] [pessimistic] [side]."
+"Don't [quote]  [me]  [on]  [this] , [but]  [judging]  [from]  [his]  [speech]  [at]  [the]  [board]  [meeting] , [the]  CEO's [disposition]  [is]  [not]  [optimistic] ; [it]  [is] , [if]  [anything] , [on]  [the]  [pessimistic]  [side] ."
 ### 177 ###
-[The] [sales] [figures] [in] [the] [third] [quarter] [were] [fairly] [good], [but] [considering] [the] [market] [growth], [there] [was] [still] [plenty] [of] [room] [for] [improvement].
+[The]  [sales]  [figures]  [in]  [the]  [third]  [quarter]  [were]  [fairly]  [good] , [but]  [considering]  [the]  [market]  [growth] , [there]  [was]  [still]  [plenty]  [of]  [room]  [for]  [improvement] .
 ### 178 ###
-[Having] [withdrawn] [most] [of] [his] [savings] [from] [his] [bank] [deposit], [the] [wealthy] [landowner] [had] [a] [considerable] [amount] [of] [money] [at] [his] [disposal].
+[Having]  [withdrawn]  [most]  [of]  [his]  [savings]  [from]  [his]  [bank]  [deposit] , [the]  [wealthy]  [landowner]  [had]  [a]  [considerable]  [amount]  [of]  [money]  [at]  [his]  [disposal] .
 ### 179 ###
-[The] [dedicated] [coach], [having] [trained] [the] [promising] [runner] [for] [the] [past] [few] [years], [seems] [delighted] [with] [the] [steady] [progress] [she] [has] [made] [up] [to] [now].
+[The]  [dedicated]  [coach] , [having]  [trained]  [the]  [promising]  [runner]  [for]  [the]  [past]  [few]  [years] , [seems]  [delighted]  [with]  [the]  [steady]  [progress]  [she]  [has]  [made]  [up]  [to]  [now] .
 ### 180 ###
-[Never] [having] [treated] [a] [wounded] [soldier], [the] [male] [nurse] [passed] [out] [at] [the] [sight] [of] [one] [covered] [with] [blood] [and] [didn]'[t] [recover] [consciousness] [for] [a] [while].
+[Never]  [having]  [treated]  [a]  [wounded]  [soldier] , [the]  [male]  [nurse]  [passed]  [out]  [at]  [the]  [sight]  [of]  [one]  [covered]  [with]  [blood]  [and]  didn't [recover]  [consciousness]  [for]  [a]  [while] .
 ### 181 ###
-[True] [to] [his] [word], [the] [athletic] [genius] [performed] [an] [astonishing] [feat] [with] [ease]; [he] [broke] [three] [world] [records] [by] [wide] [margins].
+[True]  [to]  [his]  [word] , [the]  [athletic]  [genius]  [performed]  [an]  [astonishing]  [feat]  [with]  [ease] ; [he]  [broke]  [three]  [world]  [records]  [by]  [wide]  [margins] .
 ### 182 ###
-[Frantic] [with] [worry], [he] [told] [the] [cruel] [kidnapper] [that] [he] [was] [prepared] [to] [pay] [any] [ransom] [provided] [that] [the] [release] [of] [his] [loved] [ones] [was] [assured].
+[Frantic]  [with]  [worry] , [he]  [told]  [the]  [cruel]  [kidnapper]  [that]  [he]  [was]  [prepared]  [to]  [pay]  [any]  [ransom]  [provided]  [that]  [the]  [release]  [of]  [his]  [loved]  [ones]  [was]  [assured] .
 ### 183 ###
-[Unable] [to] [suppress] [his] [feelings], [he] [exclaimed], "[How] [rotten] [he] [is]! [I] [would] [rather] [go] [without] [food] [and] [drink] [than] [borrow] [money] [from] [that] [sly] [old] [devil]."
+[Unable]  [to]  [suppress]  [his]  [feelings] , [he]  [exclaimed] , "[How]  [rotten]  [he]  [is] ! [I]  [would]  [rather]  [go]  [without]  [food]  [and]  [drink]  [than]  [borrow]  [money]  [from]  [that]  [sly]  [old]  [devil] ."
 ### 184 ###
-[Dot] [was] [standing] [in] [the] [corner] [with] [her] [arms] [folded] [and] [her] [eyes] [closed]. [With] [no] [one] [paying] [any] [attention] [to] [her], [she] [felt] [lonely] [and] [out] [of] [place].
+[Dot]  [was]  [standing]  [in]  [the]  [corner]  [with]  [her]  [arms]  [folded]  [and]  [her]  [eyes]  [closed] . [With]  [no]  [one]  [paying]  [any]  [attention]  [to]  [her] , [she]  [felt]  [lonely]  [and]  [out]  [of]  [place] .
 ### 185 ###
-[With] [opening] [night] [just] [around] [the] [corner], [twenty]-[odd] [members] [of] [staff] [were] [busy] [assembling] [the] [stage] [equipment].
+[With]  [opening]  [night]  [just]  [around]  [the]  [corner] , [twenty] -[odd]  [members]  [of]  [staff]  [were]  [busy]  [assembling]  [the]  [stage]  [equipment] .
 ### 186 ###
-[Eyes] [wide] [open], [the] [curious] [boy] [kept] [gazing] [at] [a] [cricket] [as] [it] [stopped] [chirping], [made] [its] [way] [to] [the] [puddle], [and] [leaped] [over] [it].
+[Eyes]  [wide]  [open] , [the]  [curious]  [boy]  [kept]  [gazing]  [at]  [a]  [cricket]  [as]  [it]  [stopped]  [chirping] , [made]  [its]  [way]  [to]  [the]  [puddle] , [and]  [leaped]  [over]  [it] .
 ### 187 ###
-[The] [latest] [statistics] [show] [that] [the] [number] [of] [crimes] [in] [the] [urban] [districts] [of] [this] [country], [far] [from] [decreasing], [is] [on] [the] [increase] [again].
+[The]  [latest]  [statistics]  [show]  [that]  [the]  [number]  [of]  [crimes]  [in]  [the]  [urban]  [districts]  [of]  [this]  [country] , [far]  [from]  [decreasing] , [is]  [on]  [the]  [increase]  [again] .
 ### 188 ###
-[All] [but] [a] [few] [of] [them] [doubted] [that] [the] [bold] [and] [daring] [explorers] [could] [overcome] [the] [formidable] [obstacles] [and] [conduct] [a] [successful] [expedition] [to] [the] [Antarctic].
+[All]  [but]  [a]  [few]  [of]  [them]  [doubted]  [that]  [the]  [bold]  [and]  [daring]  [explorers]  [could]  [overcome]  [the]  [formidable]  [obstacles]  [and]  [conduct]  [a]  [successful]  [expedition]  [to]  [the]  [Antarctic] .
 ### 189 ###
-"[I] [can] [tell] [from] [this] [score] [that] [he] [is] [continuing] [to] [make] [an] [effort] [to] [improve] [his] [English]." "[I] [suspect] [he] [either] [cheated] [or] [got] [the] [score] [by] [accident]."
+"[I]  [can]  [tell]  [from]  [this]  [score]  [that]  [he]  [is]  [continuing]  [to]  [make]  [an]  [effort]  [to]  [improve]  [his]  [English] ." "[I]  [suspect]  [he]  [either]  [cheated]  [or]  [got]  [the]  [score]  [by]  [accident] ."
 ### 190 ###
-[It] [was] [so] [brightly] [colored] [that] [I] [didn]'[t] [feel] [comfortable]. [I] [recommended] [he] [change] [it] [to] [create] [a] [quieter] [atmosphere] [to] [suit] [the] [taste] [of] [elderly] [people].
+[It]  [was]  [so]  [brightly]  [colored]  [that]  [I]  didn't [feel]  [comfortable] . [I]  [recommended]  [he]  [change]  [it]  [to]  [create]  [a]  [quieter]  [atmosphere]  [to]  [suit]  [the]  [taste]  [of]  [elderly]  [people] .
 ### 191 ###
-[The] [annual] [study] [released] [Wednesday] [requested] [that] [far] [more] [resources] [be] [devoted] [to] [the] [care] [of] [needy] [refugees] [to] [ease] [their] [distress].
+[The]  [annual]  [study]  [released]  [Wednesday]  [requested]  [that]  [far]  [more]  [resources]  [be]  [devoted]  [to]  [the]  [care]  [of]  [needy]  [refugees]  [to]  [ease]  [their]  [distress] .
 ### 192 ###
-[A] [good] [many] [city] [dwellers] [were] [frustrated] [that] [they] [couldn]'[t] [afford] [to] [rent] [a] [decent] [apartment] [in] [central] [Tokyo], [let] [alone] [own] [a] [house].
+[A]  [good]  [many]  [city]  [dwellers]  [were]  [frustrated]  [that]  [they]  couldn't [afford]  [to]  [rent]  [a]  [decent]  [apartment]  [in]  [central]  [Tokyo] , [let]  [alone]  [own]  [a]  [house] .
 ### 193 ###
-[I] [am] [bitterly] [disappointed] [and] [shocked] [that] [a] [majority] [of] [the] [delegates] [didn]'[t] [vote] [for] [the] [bill] [to] [protect] [endangered] [species] [from] [extinction].
+[I]  [am]  [bitterly]  [disappointed]  [and]  [shocked]  [that]  [a]  [majority]  [of]  [the]  [delegates]  didn't [vote]  [for]  [the]  [bill]  [to]  [protect]  [endangered]  [species]  [from]  [extinction] .
 ### 194 ###
-[The] [trouble] [with] [the] [peasants] [toiling] [in] [those] [barren] [fields] [was] [that] [they] [were] [not] [familiar] [with] [the] [basic] [concept] [of] [irrigation].
+[The]  [trouble]  [with]  [the]  [peasants]  [toiling]  [in]  [those]  [barren]  [fields]  [was]  [that]  [they]  [were]  [not]  [familiar]  [with]  [the]  [basic]  [concept]  [of]  [irrigation] .
 ### 195 ###
-"[The] [fact] [is], [I]'[m] [not] [on] [good] [terms] [with] [Debbie]. [I] [run] [into] [her] [once] [in] [a] [while] [on] [campus], [but] [we] [seldom] [exchange] [greetings]."
+"[The]  [fact]  [is] , I'm [not]  [on]  [good]  [terms]  [with]  [Debbie] . [I]  [run]  [into]  [her]  [once]  [in]  [a]  [while]  [on]  [campus] , [but]  [we]  [seldom]  [exchange]  [greetings] ."
 ### 196 ###
-"[With] [regard] [to] [your] [recent] [inquiry], [I]'[m] [pleased] [to] [inform] [you] [that] [the] [other] [party] [has] [finally] [agreed] [to] [settle] [out] [of] [court]."
+"[With]  [regard]  [to]  [your]  [recent]  [inquiry] , I'm [pleased]  [to]  [inform]  [you]  [that]  [the]  [other]  [party]  [has]  [finally]  [agreed]  [to]  [settle]  [out]  [of]  [court] ."
 ### 197 ###
-[The] [president] [told] [the] [assembly] [of] [diligent] [workers] [that] [he] [took] [great] [pride] [in] [them] [and] [that], [in] [the] [long] [run], [their] [efforts] [would] [be] [amply] [rewarded].
+[The]  [president]  [told]  [the]  [assembly]  [of]  [diligent]  [workers]  [that]  [he]  [took]  [great]  [pride]  [in]  [them]  [and]  [that] , [in]  [the]  [long]  [run] , [their]  [efforts]  [would]  [be]  [amply]  [rewarded] .
 ### 198 ###
-[The] [accountant] [ordered] [his] [assistant] [to] [look] [over] [the] [figures] [in] [the] [books] [to] [see] [if] [there] [were] [any] [obvious] [errors] [or] [missing] [items].
+[The]  [accountant]  [ordered]  [his]  [assistant]  [to]  [look]  [over]  [the]  [figures]  [in]  [the]  [books]  [to]  [see]  [if]  [there]  [were]  [any]  [obvious]  [errors]  [or]  [missing]  [items] .
 ### 199 ###
-[All] [of] [a] [sudden] [I] [became] [uncertain] [as] [to] [whether] [or] [not] [I] [had] [chosen] [the] [right] [clothes] [and] [canceled] [the] [order], [but] [I] [was] [charged] [a] [cancellation] [fee].
+[All]  [of]  [a]  [sudden]  [I]  [became]  [uncertain]  [as]  [to]  [whether]  [or]  [not]  [I]  [had]  [chosen]  [the]  [right]  [clothes]  [and]  [canceled]  [the]  [order] , [but]  [I]  [was]  [charged]  [a]  [cancellation]  [fee] .
 ### 200 ###
-"[Have] [you] [checked] [the] [instrument] [panel]?" "[Yes], [but] [I] [can]'[t] [figure] [out] [what]'[s] [wrong]. [Maybe] [it]'[s] [an] [electrical] [failure]." "[Operate] [it] [manually]."
+"[Have]  [you]  [checked]  [the]  [instrument]  [panel] ?" "[Yes] , [but]  [I]  can't [figure]  [out]  what's [wrong] . [Maybe]  it's [an]  [electrical]  [failure] ." "[Operate]  [it]  [manually] ."
 ### 201 ###
-[A] [few] [passengers] [intervened] [between] [a] [streetcar] [driver] [and] [a] [cab] [driver] [quarreling] [over] [who] [was] [to] [blame] [for] [a] [minor] [collision].
+[A]  [few]  [passengers]  [intervened]  [between]  [a]  [streetcar]  [driver]  [and]  [a]  [cab]  [driver]  [quarreling]  [over]  [who]  [was]  [to]  [blame]  [for]  [a]  [minor]  [collision] .
 ### 202 ###
-[Information] [technologies], [known] [as] [IT], [are] [advancing] [so] [rapidly] [that] [ordinary] [people] [have] [no] [idea] [what] [it] [will] [be] [like] [five] [years] [from] [now].
+[Information]  [technologies] , [known]  [as]  [IT] , [are]  [advancing]  [so]  [rapidly]  [that]  [ordinary]  [people]  [have]  [no]  [idea]  [what]  [it]  [will]  [be]  [like]  [five]  [years]  [from]  [now] .
 ### 203 ###
-"[What] [do] [you] [think] [makes] [them] [competitive]?" "[For] [the] [most] [part] [it]'[s] [because] [they] [spend] [substantial] [sums] [of] [money] [on] [research] [and] [development]."
+"[What]  [do]  [you]  [think]  [makes]  [them]  [competitive] ?" "[For]  [the]  [most]  [part]  it's [because]  [they]  [spend]  [substantial]  [sums]  [of]  [money]  [on]  [research]  [and]  [development] ."
 ### 204 ###
-[I] [went] [on] [a] [trip] [to] [rural] [Iran]. [The] [landscape] [was] [beautiful] [beyond] [comparison]. [What] [made] [the] [scenery] [second] [to] [none] [were] [the] [paddy] [fields].
+[I]  [went]  [on]  [a]  [trip]  [to]  [rural]  [Iran] . [The]  [landscape]  [was]  [beautiful]  [beyond]  [comparison] . [What]  [made]  [the]  [scenery]  [second]  [to]  [none]  [were]  [the]  [paddy]  [fields] .
 ### 205 ###
-[As] [a] [matter] [of] [fact], [what] [you] [described] [as] [Chinese] [characteristics] [apply] [not] [only] [to] [the] [Chinese] [but] [also] [other] [Asian] [peoples].
+[As]  [a]  [matter]  [of]  [fact] , [what]  [you]  [described]  [as]  [Chinese]  [characteristics]  [apply]  [not]  [only]  [to]  [the]  [Chinese]  [but]  [also]  [other]  [Asian]  [peoples] .
 ### 206 ###
-"[There] [he] [goes] [again], [trying] [to] [impress] [others] [with] [what] [he] [calls] [his] [extensive] [knowledge] [of] [oriental] [cuisine]!" "[He] [really] [loves] [to] [show] [off]."
+"[There]  [he]  [goes]  [again] , [trying]  [to]  [impress]  [others]  [with]  [what]  [he]  [calls]  [his]  [extensive]  [knowledge]  [of]  [oriental]  [cuisine] !" "[He]  [really]  [loves]  [to]  [show]  [off] ."
 ### 207 ###
-[After] [being] [presented] [with] [the] [award], [the] [director] [expressed] [his] [gratitude]. "[I] [owe] [what] [I] [am] [today] [to] [my] [wonderful] [staff]. [I] [can]'[t] [thank] [them] [enough]."
+[After]  [being]  [presented]  [with]  [the]  [award] , [the]  [director]  [expressed]  [his]  [gratitude] . "[I]  [owe]  [what]  [I]  [am]  [today]  [to]  [my]  [wonderful]  [staff] . [I]  can't [thank]  [them]  [enough] ."
 ### 208 ###
-[When] [the] [misery] [of] [dying] [children] [was] [broadcast], [I] [was] [filled] [with] [so] [much] [sympathy] [that] [I] [decided] [to] [donate] [what] [little] [money] [I] [had] [to] [charity].
+[When]  [the]  [misery]  [of]  [dying]  [children]  [was]  [broadcast] , [I]  [was]  [filled]  [with]  [so]  [much]  [sympathy]  [that]  [I]  [decided]  [to]  [donate]  [what]  [little]  [money]  [I]  [had]  [to]  [charity] .
 ### 209 ###
-"[Do] [you] [realize] [this] [is] [a] [particularly] [crucial] [moment]?" [inquired] [the] [Secretary] [of] [State]. "[Whatever] [we] [do] [now] [will] [determine] [the] [destiny] [of] [this] [administration]."
+"[Do]  [you]  [realize]  [this]  [is]  [a]  [particularly]  [crucial]  [moment] ?" [inquired]  [the]  [Secretary]  [of]  [State] . "[Whatever]  [we]  [do]  [now]  [will]  [determine]  [the]  [destiny]  [of]  [this]  [administration] ."
 ### 210 ###
-[The] [vigorous] [old] [man] [said], "[I] [welcome] [whoever] [wishes] [to] [come], [so] [do] [bring] [as] [many] [pals] [as] [you] [can] -- [the] [more], [the] [merrier]."
+[The]  [vigorous]  [old]  [man]  [said] , "[I]  [welcome]  [whoever]  [wishes]  [to]  [come] , [so]  [do]  [bring]  [as]  [many]  [pals]  [as]  [you]  [can]  -- [the]  [more] , [the]  [merrier] ."
 ### 211 ###
-[Kyoto], [the] [ancient] [capital] [famous] [for] [its] [old] [temples] [and] [shrines], [lies] [to] [the] [north] [of] [Osaka] [and] [some] 500 [kilometers] [to] [the] [west] [of] [Tokyo].
+[Kyoto] , [the]  [ancient]  [capital]  [famous]  [for]  [its]  [old]  [temples]  [and]  [shrines] , [lies]  [to]  [the]  [north]  [of]  [Osaka]  [and]  [some]  500 [kilometers]  [to]  [the]  [west]  [of]  [Tokyo] .
 ### 212 ###
-[The] [economics] [textbook] [says] [inflation], [that] [is], [a] [general] [rise] [in] [the] [prices] [of] [goods] [and] [services], [results] [from] [an] [excess] [of] [demand] [over] [supply].
+[The]  [economics]  [textbook]  [says]  [inflation] , [that]  [is] , [a]  [general]  [rise]  [in]  [the]  [prices]  [of]  [goods]  [and]  [services] , [results]  [from]  [an]  [excess]  [of]  [demand]  [over]  [supply] .
 ### 213 ###
-[The] [thesis] [covered] [all] [phases] [of] [the] [glories] [and] [triumphs] [of] [civilization] [and] [omitted] [a] [less] [prominent] [factor], [i].[e]. [the] [psychology] [of] [the] [masses].
+[The]  [thesis]  [covered]  [all]  [phases]  [of]  [the]  [glories]  [and]  [triumphs]  [of]  [civilization]  [and]  [omitted]  [a]  [less]  [prominent]  [factor] , [i] .[e] . [the]  [psychology]  [of]  [the]  [masses] .
 ### 214 ###
-[All] [living] [creatures] [depend] [for] [their] [existence] [on] [the] [chemical] [elements] [of] [oxygen] [and] [hydrogen]. [In] [a] [word], [they] [can]'[t] [exist] [without] [water].
+[All]  [living]  [creatures]  [depend]  [for]  [their]  [existence]  [on]  [the]  [chemical]  [elements]  [of]  [oxygen]  [and]  [hydrogen] . [In]  [a]  [word] , [they]  can't [exist]  [without]  [water] .
 ### 215 ###
-[Astronomers] [are] [convinced] [of] [the] [theory] [that] [the] [universe] [came] [into] [being] [and] [evolved] [as] [a] [result] [of] [a] [massive] [explosion].
+[Astronomers]  [are]  [convinced]  [of]  [the]  [theory]  [that]  [the]  [universe]  [came]  [into]  [being]  [and]  [evolved]  [as]  [a]  [result]  [of]  [a]  [massive]  [explosion] .
 ### 216 ###
-[The] [clergyman] [was] [barred] [from] [addressing] [the] [political] [rally] [on] [the] [grounds] [that] [he] [might] [add] [fuel] [to] [revolutionary] [sentiments] [and] [start] [a] [revolt].
+[The]  [clergyman]  [was]  [barred]  [from]  [addressing]  [the]  [political]  [rally]  [on]  [the]  [grounds]  [that]  [he]  [might]  [add]  [fuel]  [to]  [revolutionary]  [sentiments]  [and]  [start]  [a]  [revolt] .
 ### 217 ###
-[Medical] [scientists] [came] [to] [more] [or] [less] [the] [same] [conclusion] [that] [a] [certain] [virus], [by] [destroying] [specific] [cells], [brings] [about] [the] [rare], [fatal] [disease].
+[Medical]  [scientists]  [came]  [to]  [more]  [or]  [less]  [the]  [same]  [conclusion]  [that]  [a]  [certain]  [virus] , [by]  [destroying]  [specific]  [cells] , [brings]  [about]  [the]  [rare] , [fatal]  [disease] .
 ### 218 ###
-[The] [immense] [bronze] [statue] [was] [erected] [as] [a] [memorial] [to] [the] [heroic] [statesman] [who] [sacrificed] [his] [life] [for] [the] [sake] [of] [democracy].
+[The]  [immense]  [bronze]  [statue]  [was]  [erected]  [as]  [a]  [memorial]  [to]  [the]  [heroic]  [statesman]  [who]  [sacrificed]  [his]  [life]  [for]  [the]  [sake]  [of]  [democracy] .
 ### 219 ###
-[I]'[m] [deeply] [concerned] [about] [millions] [of] [potential] [addicts] [who] [are] [not] [in] [the] [least] [aware] [of] [the] [grave] [dangers] [of] [drug] [and] [alcohol] [abuse].
+I'm [deeply]  [concerned]  [about]  [millions]  [of]  [potential]  [addicts]  [who]  [are]  [not]  [in]  [the]  [least]  [aware]  [of]  [the]  [grave]  [dangers]  [of]  [drug]  [and]  [alcohol]  [abuse] .
 ### 220 ###
-[A] [large] [number] [of] [people] [participated] [in] [the] [peace] [march] [calling] [for] [the] [abolition] [of] [weapons] [that] [are] [capable] [of] [causing] [mass] [destruction].
+[A]  [large]  [number]  [of]  [people]  [participated]  [in]  [the]  [peace]  [march]  [calling]  [for]  [the]  [abolition]  [of]  [weapons]  [that]  [are]  [capable]  [of]  [causing]  [mass]  [destruction] .
 ### 221 ###
-[The] [U].[S]. [Congress], [which] [corresponds] [to] [the] [British] [Parliament] [or] [the] [Japanese] [Diet], [consists] [of] [the] [House] [and] [the] [Senate].
+[The]  [U] .[S] . [Congress] , [which]  [corresponds]  [to]  [the]  [British]  [Parliament]  [or]  [the]  [Japanese]  [Diet] , [consists]  [of]  [the]  [House]  [and]  [the]  [Senate] .
 ### 222 ###
-[Some] [religious] [bodies] [resented] [the] [genetic] [engineering] [experiment] [that] [the] [chemists] [were] [engaged] [in] [to] [test] [their] [hypothesis].
+[Some]  [religious]  [bodies]  [resented]  [the]  [genetic]  [engineering]  [experiment]  [that]  [the]  [chemists]  [were]  [engaged]  [in]  [to]  [test]  [their]  [hypothesis] .
 ### 223 ###
-[This] [is] [the] [most] [mysterious] [phenomenon] [that] [I] [have] [ever] [observed] [and] [it] [could] [have] [far]-[reaching] [implications] [for] [the] [ecology] [of] [this] [region].
+[This]  [is]  [the]  [most]  [mysterious]  [phenomenon]  [that]  [I]  [have]  [ever]  [observed]  [and]  [it]  [could]  [have]  [far] -[reaching]  [implications]  [for]  [the]  [ecology]  [of]  [this]  [region] .
 ### 224 ###
-[The] [attached] [form] [will] [save] [you] [a] [lot] [of] [trouble] [when] [registering]. [All] [you] [have] [to] [do] [is] [confirm] [your] [address], [fill] [in] [the] [relevant] [blanks],[and] [put] [your] [signature] [to] [it].
+[The]  [attached]  [form]  [will]  [save]  [you]  [a]  [lot]  [of]  [trouble]  [when]  [registering] . [All]  [you]  [have]  [to]  [do]  [is]  [confirm]  [your]  [address] , [fill]  [in]  [the]  [relevant]  [blanks] ,[and]  [put]  [your]  [signature]  [to]  [it] .
 ### 225 ###
-[They] [called] [him] [a] [liar], [which] [he] [was] [not]; [they] [accused] [him] [of] [being] [selfish], [which] [he] [was] [not], [either]. [He] [was] [really] [not] [the] [kind] [of] [person] [he] [was] [thought] [to] [be].
+[They]  [called]  [him]  [a]  [liar] , [which]  [he]  [was]  [not] ; [they]  [accused]  [him]  [of]  [being]  [selfish] , [which]  [he]  [was]  [not] , [either] . [He]  [was]  [really]  [not]  [the]  [kind]  [of]  [person]  [he]  [was]  [thought]  [to]  [be] .
 ### 226 ###
-[An] [MC], [which] [is] [short] [for] [Master] [of] [Ceremonies], [is] [a] [person] [whose] [duty] [is] [to] [see] [that] [a] [certain] [formal] [social] [event] [takes] [place] [according] [to] [schedule].
+[An]  [MC] , [which]  [is]  [short]  [for]  [Master]  [of]  [Ceremonies] , [is]  [a]  [person]  [whose]  [duty]  [is]  [to]  [see]  [that]  [a]  [certain]  [formal]  [social]  [event]  [takes]  [place]  [according]  [to]  [schedule] .
 ### 227 ###
-[She] [insisted] [that] [those] [single] [mothers], [all] [of] [whom] [were] [badly] [off] [and] [had] [trouble] [providing] [for] [their] [children], [deserved] [better] [welfare] [benefits].
+[She]  [insisted]  [that]  [those]  [single]  [mothers] , [all]  [of]  [whom]  [were]  [badly]  [off]  [and]  [had]  [trouble]  [providing]  [for]  [their]  [children] , [deserved]  [better]  [welfare]  [benefits] .
 ### 228 ###
-[I] [understand] [that] [children] [brought] [up] [overseas] [have] [difficulty] [adapting] [to] [life] [in] [this] [society], [which] [requires] [them] [to] [conform].
+[I]  [understand]  [that]  [children]  [brought]  [up]  [overseas]  [have]  [difficulty]  [adapting]  [to]  [life]  [in]  [this]  [society] , [which]  [requires]  [them]  [to]  [conform] .
 ### 229 ###
-[I] [imitated] [a] [variety] [of] [dialects] [to] [amuse] [the] [teenage] [girls], [who] [chuckled] [and] [made] [fun] [of] [my] [desperate] [attempt] [to] [entertain] [them].
+[I]  [imitated]  [a]  [variety]  [of]  [dialects]  [to]  [amuse]  [the]  [teenage]  [girls] , [who]  [chuckled]  [and]  [made]  [fun]  [of]  [my]  [desperate]  [attempt]  [to]  [entertain]  [them] .
 ### 230 ###
-[Dick] [said] [in] [an] [indignant] [tone] [of] [voice], "[In] [short], [it]'[s] [their] [fault], [not] [mine], [which] [is] [why] [I]'[m] [under] [no] [obligation] [to] [pay] [for] [the] [damage]."
+[Dick]  [said]  [in]  [an]  [indignant]  [tone]  [of]  [voice] , "[In]  [short] , it's [their]  [fault] , [not]  [mine] , [which]  [is]  [why]  I'm [under]  [no]  [obligation]  [to]  [pay]  [for]  [the]  [damage] ."
 ### 231 ###
-[The] [woman] [writer] [sought] [to] [arouse] [widespread] [sympathy] [for] [her] [feminist] [cause], [which] [her] [peers] [viewed] [as] [an] [act] [of] [self]-[interest].
+[The]  [woman]  [writer]  [sought]  [to]  [arouse]  [widespread]  [sympathy]  [for]  [her]  [feminist]  [cause] , [which]  [her]  [peers]  [viewed]  [as]  [an]  [act]  [of]  [self] -[interest] .
 ### 232 ###
-"[On] [behalf] [of] [our] [department], [Gill] [is] [going] [to] [make] [a] [speech]." "[Speaking] [of] [which], [I]'[ve] [been] [told] [he] [will] [be] [promoted] [to] [deputy] [general] [manager]."
+"[On]  [behalf]  [of]  [our]  [department] , [Gill]  [is]  [going]  [to]  [make]  [a]  [speech] ." "[Speaking]  [of]  [which] , I've [been]  [told]  [he]  [will]  [be]  [promoted]  [to]  [deputy]  [general]  [manager] ."
 ### 233 ###
-[I] [was] [intensely] [irritated]. [I] [was] [in] [a] [hurry] [but] [got] [caught] [in] [a] [traffic] [jam]. [As] [is] [often] [the] [case], [that] [particular] [intersection] [was] [under] [repair] [again].
+[I]  [was]  [intensely]  [irritated] . [I]  [was]  [in]  [a]  [hurry]  [but]  [got]  [caught]  [in]  [a]  [traffic]  [jam] . [As]  [is]  [often]  [the]  [case] , [that]  [particular]  [intersection]  [was]  [under]  [repair]  [again] .
 ### 234 ###
-[UFO] [stands] [for] "[unidentified] [flying] [object]." [It] [is] [defined] [in] [this] [dictionary] [as] "[a] [saucer]-[like] [vehicle], [which] [some] [people] [claim] [they] [have] [seen]."
+[UFO]  [stands]  [for]  "[unidentified]  [flying]  [object] ." [It]  [is]  [defined]  [in]  [this]  [dictionary]  [as]  "[a]  [saucer] -[like]  [vehicle] , [which]  [some]  [people]  [claim]  [they]  [have]  [seen] ."
 ### 235 ###
-[The] [founder] [of] [the] [new] [religion] [delivered] [a] [passionate] [sermon] [about] [the] [worship] [of] [money], [which] [he] [asserted] [was] [the] [root] [of] [all] [evil] [deeds].
+[The]  [founder]  [of]  [the]  [new]  [religion]  [delivered]  [a]  [passionate]  [sermon]  [about]  [the]  [worship]  [of]  [money] , [which]  [he]  [asserted]  [was]  [the]  [root]  [of]  [all]  [evil]  [deeds] .
 ### 236 ###
-[The] [riot] [police] [clashed] [with] [a] [violent] [mob] [who] [were] [protesting] [a] [Supreme] [Court] [ruling] [that] [they] [maintained] [was] [a] [gross] [injustice].
+[The]  [riot]  [police]  [clashed]  [with]  [a]  [violent]  [mob]  [who]  [were]  [protesting]  [a]  [Supreme]  [Court]  [ruling]  [that]  [they]  [maintained]  [was]  [a]  [gross]  [injustice] .
 ### 237 ###
-[I] [feel] [pity] [for] [the] [kids] [I] [see] [on] [the] [street] [who] [are] [suffering] [extreme] [poverty]. [I] [wonder] [what] [they]'[ve] [got] [to] [look] [forward] [to] [in] [the] [future].
+[I]  [feel]  [pity]  [for]  [the]  [kids]  [I]  [see]  [on]  [the]  [street]  [who]  [are]  [suffering]  [extreme]  [poverty] . [I]  [wonder]  [what]  they've [got]  [to]  [look]  [forward]  [to]  [in]  [the]  [future] .
 ### 238 ###
-"[Heredity] [is] [the] [biological] [process] [by] [which] [features] [are] [passed] [on] [from] [parents] [to] [their] [offspring] [through] [the] [genes]." "[But] [I] [don]'[t] [look] [like] [Mom] [or] [Dad]."
+"[Heredity]  [is]  [the]  [biological]  [process]  [by]  [which]  [features]  [are]  [passed]  [on]  [from]  [parents]  [to]  [their]  [offspring]  [through]  [the]  [genes] ." "[But]  [I]  don't [look]  [like]  [Mom]  [or]  [Dad] ."
 ### 239 ###
-[The] [vivid] [film] [is] [based] [on] [the] [autobiography] [of] [a] [merchant] [who] [lived] [through] [the] [reign] [of] [terror] [in] [which] [innumerable] [people] [were] [slaughtered].
+[The]  [vivid]  [film]  [is]  [based]  [on]  [the]  [autobiography]  [of]  [a]  [merchant]  [who]  [lived]  [through]  [the]  [reign]  [of]  [terror]  [in]  [which]  [innumerable]  [people]  [were]  [slaughtered] .
 ### 240 ###
-[The] [solar] [system], [to] [which] [planets] [like] [Earth] [and] [Mars], [asteroids], [and] [comets] [belong], [was] [formed] [approximately] 4.5 [billion] [years] [ago].
+[The]  [solar]  [system] , [to]  [which]  [planets]  [like]  [Earth]  [and]  [Mars] , [asteroids] , [and]  [comets]  [belong] , [was]  [formed]  [approximately]  4.5 [billion]  [years]  [ago] .
 ### 241 ###
-[Notwithstanding] [her] [knee] [injury], [the] [gymnast] [gave] [a] [perfect] [performance], [for] [which] [the] [spectators] [rose] [to] [their] [feet] [and] [applauded] [loudly].
+[Notwithstanding]  [her]  [knee]  [injury] , [the]  [gymnast]  [gave]  [a]  [perfect]  [performance] , [for]  [which]  [the]  [spectators]  [rose]  [to]  [their]  [feet]  [and]  [applauded]  [loudly] .
 ### 242 ###
-[Now], [that] [supervisor] [is] [being] [well] [mannered], [but] [he] [might] [sexually] [harass] [women] [workers] [again], [in] [which] [case] [he] [will] [be] [severely] [punished].
+[Now] , [that]  [supervisor]  [is]  [being]  [well]  [mannered] , [but]  [he]  [might]  [sexually]  [harass]  [women]  [workers]  [again] , [in]  [which]  [case]  [he]  [will]  [be]  [severely]  [punished] .
 ### 243 ###
-[After] [graduating] [from] [a] [provincial] [college], [I] [returned] [to] [the] [Big] [Apple], [where] [I] [became] [acquainted] [with] [a] [bunch] [of] [outstanding] [yet] [eccentric] [artists].
+[After]  [graduating]  [from]  [a]  [provincial]  [college] , [I]  [returned]  [to]  [the]  [Big]  [Apple] , [where]  [I]  [became]  [acquainted]  [with]  [a]  [bunch]  [of]  [outstanding]  [yet]  [eccentric]  [artists] .
 ### 244 ###
-[A] [teacher] [whose] [name] [I]'[ve] [forgotten] [would] [often] [say], "[There] [will] [no] [doubt] [come] [a] [time] [when] [you]'[ll] [regret] [not] [having] [studied] [more] [diligently] [in] [school]."
+[A]  [teacher]  [whose]  [name]  I've [forgotten]  [would]  [often]  [say] , "[There]  [will]  [no]  [doubt]  [come]  [a]  [time]  [when]  you'll [regret]  [not]  [having]  [studied]  [more]  [diligently]  [in]  [school] ."
 ### 245 ###
-[I]'[m] [new] [to] [Tokyo]. [Yesterday], [when] [I] [was] [going] [to] [Shinjuku], [I] [changed] [trains] [at] [Tokyo] [Station] [and], [by] [mistake], [got] [on] [one] [bound] [for] [Chiba].
+I'm [new]  [to]  [Tokyo] . [Yesterday] , [when]  [I]  [was]  [going]  [to]  [Shinjuku] , [I]  [changed]  [trains]  [at]  [Tokyo]  [Station]  [and] , [by]  [mistake] , [got]  [on]  [one]  [bound]  [for]  [Chiba] .
 ### 246 ###
-[The] [weather] [forecaster] [added], "[And] [this] [is] [the] [tenth] [day] [in] [a] [row] [that] [the] [maximum] [temperature] [has] [exceeded] 35 [degrees] [Celsius]."
+[The]  [weather]  [forecaster]  [added] , "[And]  [this]  [is]  [the]  [tenth]  [day]  [in]  [a]  [row]  [that]  [the]  [maximum]  [temperature]  [has]  [exceeded]  35 [degrees]  [Celsius] ."
 ### 247 ###
-"[Now] [that] [I]'[m] [an] [adult], [I] [don]'[t] [want] [you] [to] [interfere] [in] [my] [affairs]. [I] [don]'[t] [want] [my] [life] [intruded] [on] [by] [anybody], [for] [that] [matter]."
+"[Now]  [that]  I'm [an]  [adult] , [I]  don't [want]  [you]  [to]  [interfere]  [in]  [my]  [affairs] . [I]  don't [want]  [my]  [life]  [intruded]  [on]  [by]  [anybody] , [for]  [that]  [matter] ."
 ### 248 ###
-[Every] [time] [he] [is] [in] [trouble], [he] [does] [not] [hesitate] [to] [turn] [to] [me] [for] [assistance], [and] [yet] [he] [is] [always] [reluctant] [to] [return] [the] [favor].
+[Every]  [time]  [he]  [is]  [in]  [trouble] , [he]  [does]  [not]  [hesitate]  [to]  [turn]  [to]  [me]  [for]  [assistance] , [and]  [yet]  [he]  [is]  [always]  [reluctant]  [to]  [return]  [the]  [favor] .
 ### 249 ###
-[The] [instant] [the] [signal] [turned] [green], [Al] [started] [to] [cross] [the] [road]. [I] [grabbed] [him] [by] [the] [collar] [and] [told] [him] [to] [look] [both] [ways] [and] [watch] [out] [for] [cars].
+[The]  [instant]  [the]  [signal]  [turned]  [green] , [Al]  [started]  [to]  [cross]  [the]  [road] . [I]  [grabbed]  [him]  [by]  [the]  [collar]  [and]  [told]  [him]  [to]  [look]  [both]  [ways]  [and]  [watch]  [out]  [for]  [cars] .
 ### 250 ###
-[I] [worked] [late] [and] [got] [home] [around] [midnight]. [I] [was] [so] [worn]-[out] [and] [sleepy] [that] [the] [moment] [I] [lay] [down] [on] [the] [couch], [I] [fell] [asleep].
+[I]  [worked]  [late]  [and]  [got]  [home]  [around]  [midnight] . [I]  [was]  [so]  [worn] -[out]  [and]  [sleepy]  [that]  [the]  [moment]  [I]  [lay]  [down]  [on]  [the]  [couch] , [I]  [fell]  [asleep] .
 ### 251 ###
-"[I] [can] [see] [no] [reason] [why] [we] [should] [go] [on] [strike]. [Most] [union] [members] [are] [in] [favor] [of] [the] [compromise] [proposal] [put] [forward] [by] [the] [management]."
+"[I]  [can]  [see]  [no]  [reason]  [why]  [we]  [should]  [go]  [on]  [strike] . [Most]  [union]  [members]  [are]  [in]  [favor]  [of]  [the]  [compromise]  [proposal]  [put]  [forward]  [by]  [the]  [management] ."
 ### 252 ###
-[The] [reason] [the] [meek] [and] [shy] [girl] [always] [looked] [gloomy] [was] [because] [she] [was] [constantly] [teased] [and] [bullied] [by] [her] [mean] [stepsisters].
+[The]  [reason]  [the]  [meek]  [and]  [shy]  [girl]  [always]  [looked]  [gloomy]  [was]  [because]  [she]  [was]  [constantly]  [teased]  [and]  [bullied]  [by]  [her]  [mean]  [stepsisters] .
 ### 253 ###
-[The] [sociology] [lecturer] [explained] [to] [us] [that] [ways] [of] [thinking] [differ] [from] [culture] [to] [culture] [in] [the] [same] [way] [that] [ways] [of] [living] [vary] [from] [place] [to] [place].
+[The]  [sociology]  [lecturer]  [explained]  [to]  [us]  [that]  [ways]  [of]  [thinking]  [differ]  [from]  [culture]  [to]  [culture]  [in]  [the]  [same]  [way]  [that]  [ways]  [of]  [living]  [vary]  [from]  [place]  [to]  [place] .
 ### 254 ###
-[I] [was] [preparing] [supper] [and] [didn]'[t] [mean] [to] [scare] [him], [but] [the] [way] [I] [stared] [at] [him] [with] [a] [kitchen] [knife] [in] [my] [hand] [frightened] [him].
+[I]  [was]  [preparing]  [supper]  [and]  didn't [mean]  [to]  [scare]  [him] , [but]  [the]  [way]  [I]  [stared]  [at]  [him]  [with]  [a]  [kitchen]  [knife]  [in]  [my]  [hand]  [frightened]  [him] .
 ### 255 ###
-[For] [all] [his] [fame] [and] [fortune], [the] [billionaire] [is] [not] [completely] [satisfied] [with] [the] [way] [things] [have] [turned] [out]. [He] [dislikes] [the] [lack] [of] [privacy], [for] [one] [thing].
+[For]  [all]  [his]  [fame]  [and]  [fortune] , [the]  [billionaire]  [is]  [not]  [completely]  [satisfied]  [with]  [the]  [way]  [things]  [have]  [turned]  [out] . [He]  [dislikes]  [the]  [lack]  [of]  [privacy] , [for]  [one]  [thing] .
 ### 256 ###
-[The] [night] [before] [the] [university] [entrance] [examination], [I] [was] [all] [too] [anxious] [and] [couldn]'[t] [get] [to] [sleep] [till] [the] [small] [hours] [of] [the] [morning].
+[The]  [night]  [before]  [the]  [university]  [entrance]  [examination] , [I]  [was]  [all]  [too]  [anxious]  [and]  couldn't [get]  [to]  [sleep]  [till]  [the]  [small]  [hours]  [of]  [the]  [morning] .
 ### 257 ###
-[When] [I] [was] [looking] [for] [my] [son]'[s] [report] [card] [the] [day] [before] [yesterday], [I] [came] [across] [photographs] [of] [nude] [women] [in] [the] [bottom] [drawer] [of] [his] [desk].
+[When]  [I]  [was]  [looking]  [for]  [my]  son's [report]  [card]  [the]  [day]  [before]  [yesterday] , [I]  [came]  [across]  [photographs]  [of]  [nude]  [women]  [in]  [the]  [bottom]  [drawer]  [of]  [his]  [desk] .
 ### 258 ###
-"[It] [smells] [delicious]," [Tom] [said], [and] [just] [as] [he] [reached] [for] [a] [slice], [his] [mother] [slapped] [him] [on] [the] [wrist] [and] [said], "[You] [must] [be] [patient]."
+"[It]  [smells]  [delicious] ," [Tom]  [said] , [and]  [just]  [as]  [he]  [reached]  [for]  [a]  [slice] , [his]  [mother]  [slapped]  [him]  [on]  [the]  [wrist]  [and]  [said] , "[You]  [must]  [be]  [patient] ."
 ### 259 ###
-[The] [orphan] [lived] [with] [a] [succession] [of] [foster] [parents], [until] [he] [was] [adopted] [by] [a] [middle]-[aged] [couple] [who] [couldn]'[t] [have] [children] [of] [their] [own].
+[The]  [orphan]  [lived]  [with]  [a]  [succession]  [of]  [foster]  [parents] , [until]  [he]  [was]  [adopted]  [by]  [a]  [middle] -[aged]  [couple]  [who]  couldn't [have]  [children]  [of]  [their]  [own] .
 ### 260 ###
-"[It]'[s] [useless] [to] [look] [to] [him] [for] [leadership] [because] [he] [is] [rather] [timid] [and] [slow] [to] [make] [up] [his] [mind]. [We]'[d] [better] [not] [leave] [this] [matter] [to] [him]."
+"It's [useless]  [to]  [look]  [to]  [him]  [for]  [leadership]  [because]  [he]  [is]  [rather]  [timid]  [and]  [slow]  [to]  [make]  [up]  [his]  [mind] . We'd [better]  [not]  [leave]  [this]  [matter]  [to]  [him] ."
 ### 261 ###
-"[Since] [there]'[s] [no] [lime] [available] [for] [the] [time] [being], [we]'[ve] [got] [to] [either] [make] [do] [with] [vinegar] [or] [just] [do] [without]. [It] [won]'[t] [make] [much] [difference] [anyway]."
+"[Since]  there's [no]  [lime]  [available]  [for]  [the]  [time]  [being] , we've [got]  [to]  [either]  [make]  [do]  [with]  [vinegar]  [or]  [just]  [do]  [without] . [It]  won't [make]  [much]  [difference]  [anyway] ."
 ### 262 ###
-[Capitalism], [as] [opposed] [to] [socialism] [or] [communism], [is] [believed] [to] [have] [a] [favorable] [effect] [on] [the] [economy] [in] [that] [it] [promotes] [efficiency] [through] [competition].
+[Capitalism] , [as]  [opposed]  [to]  [socialism]  [or]  [communism] , [is]  [believed]  [to]  [have]  [a]  [favorable]  [effect]  [on]  [the]  [economy]  [in]  [that]  [it]  [promotes]  [efficiency]  [through]  [competition] .
 ### 263 ###
-[Colonel] [Sanders] [looked] [me] [in] [the] [eye] [and] [said], "[If] [you] [persist] [in] [ignoring] [my] [commands], [I]'[ll] [be] [obliged] [to] [transfer] [you] [somewhere] [else]."
+[Colonel]  [Sanders]  [looked]  [me]  [in]  [the]  [eye]  [and]  [said] , "[If]  [you]  [persist]  [in]  [ignoring]  [my]  [commands] , I'll [be]  [obliged]  [to]  [transfer]  [you]  [somewhere]  [else] ."
 ### 264 ###
-[Deep] [in] [thought], [the] [captain] [murmured], "[Even] [if] [we] [conserve] [our] [food], [it] [will] [only] [be] [sufficient] [to] [sustain] [us] [for] [two] [weeks] [at] [most]."
+[Deep]  [in]  [thought] , [the]  [captain]  [murmured] , "[Even]  [if]  [we]  [conserve]  [our]  [food] , [it]  [will]  [only]  [be]  [sufficient]  [to]  [sustain]  [us]  [for]  [two]  [weeks]  [at]  [most] ."
 ### 265 ###
-[In] [the] [event] [of] [a] [big] [earthquake], [be] [sure] [to] [turn] [off] [the] [gas] [immediately] [and] [don]'[t] [leave] [the] [building] [unless] [you] [are] [otherwise] [instructed].
+[In]  [the]  [event]  [of]  [a]  [big]  [earthquake] , [be]  [sure]  [to]  [turn]  [off]  [the]  [gas]  [immediately]  [and]  don't [leave]  [the]  [building]  [unless]  [you]  [are]  [otherwise]  [instructed] .
 ### 266 ###
-[The] [savage] [ruler] [said], "[As] [far] [as] [I]'[m] [concerned], [you] [can] [adopt] [whatever] [means] [you] [like], [as] [long] [as] [it] [attains] [our] [primary] [objective]."
+[The]  [savage]  [ruler]  [said] , "[As]  [far]  [as]  I'm [concerned] , [you]  [can]  [adopt]  [whatever]  [means]  [you]  [like] , [as]  [long]  [as]  [it]  [attains]  [our]  [primary]  [objective] ."
 ### 267 ###
-"[In] [case] [I] [forget], [do] [remind] [me] [to] [mail] [this]. [I] [suffer] [from] [a] [loss] [of] [memory] [these] [days]. [As] [you] [grow] [older], [your] [memory] [is] [apt] [to] [fail]."
+"[In]  [case]  [I]  [forget] , [do]  [remind]  [me]  [to]  [mail]  [this] . [I]  [suffer]  [from]  [a]  [loss]  [of]  [memory]  [these]  [days] . [As]  [you]  [grow]  [older] , [your]  [memory]  [is]  [apt]  [to]  [fail] ."
 ### 268 ###
-"[What] [if] [we] [get] [lost] [on] [the] [way]? [I] [suggest] [taking] [a] [sleeping] [bag] [and] [some] [extra] [food] [with] [us] [just] [in] [case]. [We] [can]'[t] [be] [too] [cautious]."
+"[What]  [if]  [we]  [get]  [lost]  [on]  [the]  [way] ? [I]  [suggest]  [taking]  [a]  [sleeping]  [bag]  [and]  [some]  [extra]  [food]  [with]  [us]  [just]  [in]  [case] . [We]  can't [be]  [too]  [cautious] ."
 ### 269 ###
-"[I] [will] [now] [demonstrate] [how] [to] [take] [it] [apart] [and] [put] [it] [together] [so] [that] [you] [can] [do] [it] [yourself] [from] [now] [on]. [I]'[ll] [do] [it] [twice] [so] [that] [you] [won]'[t] [forget] [it]."
+"[I]  [will]  [now]  [demonstrate]  [how]  [to]  [take]  [it]  [apart]  [and]  [put]  [it]  [together]  [so]  [that]  [you]  [can]  [do]  [it]  [yourself]  [from]  [now]  [on] . I'll [do]  [it]  [twice]  [so]  [that]  [you]  won't [forget]  [it] ."
 ### 270 ###
-"[If] [I] [am] [not] [able] [to] [attend] [the] [banquet], [I]'[ll] [phone] [you] [in] [advance] [so] [you] [can] [arrange] [for] [someone] [else] [to] [take] [my] [place]."
+"[If]  [I]  [am]  [not]  [able]  [to]  [attend]  [the]  [banquet] , I'll [phone]  [you]  [in]  [advance]  [so]  [you]  [can]  [arrange]  [for]  [someone]  [else]  [to]  [take]  [my]  [place] ."
 ### 271 ###
-[To] [relieve] [our] [anxiety], [the] [manager] [told] [us], "[Do] [as] [you] [please]. [If] [anything] [should] [go] [wrong], [I]'[ll] [take] [full] [responsibility] [for] [it]."
+[To]  [relieve]  [our]  [anxiety] , [the]  [manager]  [told]  [us] , "[Do]  [as]  [you]  [please] . [If]  [anything]  [should]  [go]  [wrong] , I'll [take]  [full]  [responsibility]  [for]  [it] ."
 ### 272 ###
-[It]'[s] [a] [shame] [indeed] [that] [while] [we] [have] [more] [food] [than] [we] [can] [consume], [a] [great] [many] [people] [are] [starving] [to] [death] [in] [the] [Third] [World].
+It's [a]  [shame]  [indeed]  [that]  [while]  [we]  [have]  [more]  [food]  [than]  [we]  [can]  [consume] , [a]  [great]  [many]  [people]  [are]  [starving]  [to]  [death]  [in]  [the]  [Third]  [World] .
 ### 273 ###
-[Some] [of] [those] [present] [demanded] [that] [wearing] [seat] [belts] [be] [made] [compulsory] [by] [law], [whereas] [others] [insisted] [that] [it] [remain] [voluntary].
+[Some]  [of]  [those]  [present]  [demanded]  [that]  [wearing]  [seat]  [belts]  [be]  [made]  [compulsory]  [by]  [law] , [whereas]  [others]  [insisted]  [that]  [it]  [remain]  [voluntary] .
 ### 274 ###
-"[Where] [there] [is] [a] [will], [there] [is] [a] [way]." "[I]'[m] [not] [sure] [what] [it] [means]." "[In] [other] [words], [you] [can] [achieve] [whatever] [goal] [you] [have]."
+"[Where]  [there]  [is]  [a]  [will] , [there]  [is]  [a]  [way] ." "I'm [not]  [sure]  [what]  [it]  [means] ." "[In]  [other]  [words] , [you]  [can]  [achieve]  [whatever]  [goal]  [you]  [have] ."
 ### 275 ###
-[Although] [the] [situation] [called] [for] [swift] [action], [we] [were] [at] [a] [loss] [as] [to] [what] [to] [do], [for] [none] [of] [us] [had] [anticipated] [a] [calamity] [of] [that] [magnitude].
+[Although]  [the]  [situation]  [called]  [for]  [swift]  [action] , [we]  [were]  [at]  [a]  [loss]  [as]  [to]  [what]  [to]  [do] , [for]  [none]  [of]  [us]  [had]  [anticipated]  [a]  [calamity]  [of]  [that]  [magnitude] .
 ### 276 ###
-[Even] [though] [he] [hates] [studying] [and] [skips] [virtually] [every] [lecture], [he] [is] [unwilling] [to] [quit] [school], [simply] [because] [he] [prefers] [school] [to] [work].
+[Even]  [though]  [he]  [hates]  [studying]  [and]  [skips]  [virtually]  [every]  [lecture] , [he]  [is]  [unwilling]  [to]  [quit]  [school] , [simply]  [because]  [he]  [prefers]  [school]  [to]  [work] .
 ### 277 ###
-"[You] [are] [to] [be] [back] [by] 11 [o]'[clock] [at] [the] [latest] [whether] [you] [like] [it] [or] [not]. [It] [doesn]'[t] [matter] [where] [you] [go] [and] [what] [you] [do] [so] [long] [as] [you] [behave] [yourself]."
+"[You]  [are]  [to]  [be]  [back]  [by]  11 o'clock [at]  [the]  [latest]  [whether]  [you]  [like]  [it]  [or]  [not] . [It]  doesn't [matter]  [where]  [you]  [go]  [and]  [what]  [you]  [do]  [so]  [long]  [as]  [you]  [behave]  [yourself] ."
 ### 278 ###
-"[I]'[m] [filled] [with] [misgiving]," [the] [senior] [senator] [observed], "[In] [general] [the] [youth] [of] [today], [whether] [at] [home] [or] [abroad], [are] [utterly] [indifferent] [to] [politics]."
+"I'm [filled]  [with]  [misgiving] ," [the]  [senior]  [senator]  [observed] , "[In]  [general]  [the]  [youth]  [of]  [today] , [whether]  [at]  [home]  [or]  [abroad] , [are]  [utterly]  [indifferent]  [to]  [politics] ."
 ### 279 ###
-"[He] [bumped] [my] [car] [against] [a] [lamppost]? [How] [clumsy] [of] [him]! [No] [matter] [what] [he] [does], [he] [is] [careless] [and] [awkward]." "[I] [wonder] [who] [he] [takes] [after]."
+"[He]  [bumped]  [my]  [car]  [against]  [a]  [lamppost] ? [How]  [clumsy]  [of]  [him] ! [No]  [matter]  [what]  [he]  [does] , [he]  [is]  [careless]  [and]  [awkward] ." "[I]  [wonder]  [who]  [he]  [takes]  [after] ."
 ### 280 ###
-[No] [matter] [how] [abundant] [natural] [resources] [may] [seem], [they] [are] [limited] [and] [bound] [to] [be] [exhausted], [so] [why] [don]'[t] [we] [utilize] [them] [sensibly]?
+[No]  [matter]  [how]  [abundant]  [natural]  [resources]  [may]  [seem] , [they]  [are]  [limited]  [and]  [bound]  [to]  [be]  [exhausted] , [so]  [why]  don't [we]  [utilize]  [them]  [sensibly] ?
 ### 281 ###
-[Beaming] [with] [goodwill], [the] [amiable] [missionary] [called], "[All] [contributions], [however] [small], [will] [be] [much] [appreciated]. [Every] [bit] [counts]."
+[Beaming]  [with]  [goodwill] , [the]  [amiable]  [missionary]  [called] , "[All]  [contributions] , [however]  [small] , [will]  [be]  [much]  [appreciated] . [Every]  [bit]  [counts] ."
 ### 282 ###
-"[I]'[m] [certain] [he] [will] [make] [an] [ideal] [business] [partner]; [he] [never] [makes] [a] [vague] [promise], [and] [once] [he] [does] [make] [a] [promise], [he] [is] [certain] [to] [keep] [it]."
+"I'm [certain]  [he]  [will]  [make]  [an]  [ideal]  [business]  [partner] ; [he]  [never]  [makes]  [a]  [vague]  [promise] , [and]  [once]  [he]  [does]  [make]  [a]  [promise] , [he]  [is]  [certain]  [to]  [keep]  [it] ."
 ### 283 ###
-[A] [blunt]-[spoken] [fortune]-[teller] [predicted] [that], [on] [the] [whole], [we] [would] [have] [a] [stormy] [year] [and] [encounter] [a] [good] [deal] [of] [misfortune].
+[A]  [blunt] -[spoken]  [fortune] -[teller]  [predicted]  [that] , [on]  [the]  [whole] , [we]  [would]  [have]  [a]  [stormy]  [year]  [and]  [encounter]  [a]  [good]  [deal]  [of]  [misfortune] .
 ### 284 ###
-"[Do] [you] [foresee] [an] [end] [to] [this] [crisis]?" "[Certainly]! [I] [see] [a] [ray] [of] [hope] [on] [the] [horizon], [and] [I] [will] [steer] [the] [tribe] [toward] [it]."
+"[Do]  [you]  [foresee]  [an]  [end]  [to]  [this]  [crisis] ?" "[Certainly] ! [I]  [see]  [a]  [ray]  [of]  [hope]  [on]  [the]  [horizon] , [and]  [I]  [will]  [steer]  [the]  [tribe]  [toward]  [it] ."
 ### 285 ###
-"[Do] [me] [a] [favor], [will] [you]?" "[That] [depends]. [What] [is] [it]?" "[Will] [you] [turn] [the] [music] [down] [while] [I]'[m] [on] [the] [phone]? [I] [have] [to] [shout] [to] [make] [myself] [heard]."
+"[Do]  [me]  [a]  [favor] , [will]  [you] ?" "[That]  [depends] . [What]  [is]  [it] ?" "[Will]  [you]  [turn]  [the]  [music]  [down]  [while]  I'm [on]  [the]  [phone] ? [I]  [have]  [to]  [shout]  [to]  [make]  [myself]  [heard] ."
 ### 286 ###
-"[Would] [you] [leave] [me] [alone]? [I] [must] [concentrate] [on] [my] [work]." "[Don]'[t] [disturb] [her], [John]. [She] [is] [in] [the] [middle] [of] [exam] [week]." "[I]'[ll] [go] [study] [in] [the] [library]."
+"[Would]  [you]  [leave]  [me]  [alone] ? [I]  [must]  [concentrate]  [on]  [my]  [work] ." "Don't [disturb]  [her] , [John] . [She]  [is]  [in]  [the]  [middle]  [of]  [exam]  [week] ." "I'll [go]  [study]  [in]  [the]  [library] ."
 ### 287 ###
-"[Will] [you] [be] [paying] [by] [cash] [or] [credit] [card]?" [asked] [the] [hotel] [clerk]. [The] [guest] [answered], "[Cash], [please]. [On] [second] [thought], [I]'[ll] [pay] [by] [check]."
+"[Will]  [you]  [be]  [paying]  [by]  [cash]  [or]  [credit]  [card] ?" [asked]  [the]  [hotel]  [clerk] . [The]  [guest]  [answered] , "[Cash] , [please] . [On]  [second]  [thought] , I'll [pay]  [by]  [check] ."
 ### 288 ###
-"[We]'[re] [holding] [Vicky]'[s] [farewell] [party] [at] [two] [p].[m]. [on] [May] 20. [I]'[m] [going] [to] [give] [you] [a] [ride] [to] [her] [apartment]." "[Hold] [on] [a] [minute]. [I]'[ll] [write] [it] [down] [before] [I] [forget]."
+"We're [holding]  Vicky's [farewell]  [party]  [at]  [two]  [p] .[m] . [on]  [May]  20. I'm [going]  [to]  [give]  [you]  [a]  [ride]  [to]  [her]  [apartment] ." "[Hold]  [on]  [a]  [minute] . I'll [write]  [it]  [down]  [before]  [I]  [forget] ."
 ### 289 ###
-"[Look] [at] [those] [dark] [clouds]. [It] [looks] [like] [we]'[re] [going] [to] [have] [a] [thunder] [shower]." "[Let]'[s] [get] [this] [done] [quickly] [and] [make] [for] [the] [nearest] [shelter]."
+"[Look]  [at]  [those]  [dark]  [clouds] . [It]  [looks]  [like]  we're [going]  [to]  [have]  [a]  [thunder]  [shower] ." "Let's [get]  [this]  [done]  [quickly]  [and]  [make]  [for]  [the]  [nearest]  [shelter] ."
 ### 290 ###
-"[Screaming] [loudest] [of] [all], [Jenny] [clung] [tightly] [to] [Tom]'[s] [sleeve] [and] [wouldn]'[t] [let] [go]." "[That]'[s] [typical] [of] [her]. [She] [pretended] [to] [be] [frightened]."
+"[Screaming]  [loudest]  [of]  [all] , [Jenny]  [clung]  [tightly]  [to]  Tom's [sleeve]  [and]  wouldn't [let]  [go] ." "That's [typical]  [of]  [her] . [She]  [pretended]  [to]  [be]  [frightened] ."
 ### 291 ###
-"[How] [can] [you] [be] [so] [stupid]?" [he] [snarled]. "[I] [cannot] [make] [out] [why] [you] [were] [taken] [in] [by] [such] [a] [transparent] [lie]. [You] [should] [be] [ashamed] [of] [yourself]."
+"[How]  [can]  [you]  [be]  [so]  [stupid] ?" [he]  [snarled] . "[I]  [cannot]  [make]  [out]  [why]  [you]  [were]  [taken]  [in]  [by]  [such]  [a]  [transparent]  [lie] . [You]  [should]  [be]  [ashamed]  [of]  [yourself] ."
 ### 292 ###
-[The] [hijacker] [seized] 30 [hostages] [and] [threatened] [to] [kill] [them], [but] [an] [FBI] [agent] [was] [somehow] [able] [to] [persuade] [him] [into] [setting] [them] [free].
+[The]  [hijacker]  [seized]  30 [hostages]  [and]  [threatened]  [to]  [kill]  [them] , [but]  [an]  [FBI]  [agent]  [was]  [somehow]  [able]  [to]  [persuade]  [him]  [into]  [setting]  [them]  [free] .
 ### 293 ###
-"[It]'[s] [a] [legitimate] [transaction], [not] [illegal] [by] [any] [means]." "[That]'[s] [correct], [but] [it] [could] [adversely] [affect] [the] [relationship] [we] [have] [maintained] [with] [our] [clients]."
+"It's [a]  [legitimate]  [transaction] , [not]  [illegal]  [by]  [any]  [means] ." "That's [correct] , [but]  [it]  [could]  [adversely]  [affect]  [the]  [relationship]  [we]  [have]  [maintained]  [with]  [our]  [clients] ."
 ### 294 ###
-"[I] [had] [the] [impression] [that] [he] [was] [in] [his] [thirties], [but] [he] [turned] [out] [to] [be] 24." "[No] [kidding]! [He] [could] [pass] [for] 35. [He] [looks] [old] [for] [his] [age]."
+"[I]  [had]  [the]  [impression]  [that]  [he]  [was]  [in]  [his]  [thirties] , [but]  [he]  [turned]  [out]  [to]  [be]  24." "[No]  [kidding] ! [He]  [could]  [pass]  [for]  35. [He]  [looks]  [old]  [for]  [his]  [age] ."
 ### 295 ###
-"[I] [would] [say] [the] [beauty] [of] [democracy] [lies] [in] [the] [fact] [that] [everyone] [has] [a] [say] [in] [how] [they] [are] [governed]." "[So] [it] [does]. [I] [couldn]'[t] [agree] [more]."
+"[I]  [would]  [say]  [the]  [beauty]  [of]  [democracy]  [lies]  [in]  [the]  [fact]  [that]  [everyone]  [has]  [a]  [say]  [in]  [how]  [they]  [are]  [governed] ." "[So]  [it]  [does] . [I]  couldn't [agree]  [more] ."
 ### 296 ###
-"[Jones] [notified] [the] [executives] [of] [his] [intention] [to] [retire]. [Perhaps] [Brown] [will] [take] [over]." "[I] [couldn]'[t] [care] [less]. [It]'[s] [none] [of] [my] [business]."
+"[Jones]  [notified]  [the]  [executives]  [of]  [his]  [intention]  [to]  [retire] . [Perhaps]  [Brown]  [will]  [take]  [over] ." "[I]  couldn't [care]  [less] . It's [none]  [of]  [my]  [business] ."
 ### 297 ###
-[I] [sensed] [discouragement] [beneath] [his] [artificial] [smile], [so] [I] [consoled] [him] [by] [saying], "[Never] [mind]. [It] [couldn]'[t] [be] [helped]. [It] [could] [have] [been] [a] [lot] [worse]."
+[I]  [sensed]  [discouragement]  [beneath]  [his]  [artificial]  [smile] , [so]  [I]  [consoled]  [him]  [by]  [saying] , "[Never]  [mind] . [It]  couldn't [be]  [helped] . [It]  [could]  [have]  [been]  [a]  [lot]  [worse] ."
 ### 298 ###
-"[Who]'[s] [calling], [please]?" "[This] [is] [John] [Miller] [of] [ABC]. [May] [I] [speak] [to] [Ms]. [Smith]?" "[I]'[m] [sorry], [her] [line] [is] [busy] [now]. [Shall] [I] [have] [her] [call] [you] [back]?"
+"Who's [calling] , [please] ?" "[This]  [is]  [John]  [Miller]  [of]  [ABC] . [May]  [I]  [speak]  [to]  [Ms] . [Smith] ?" "I'm [sorry] , [her]  [line]  [is]  [busy]  [now] . [Shall]  [I]  [have]  [her]  [call]  [you]  [back] ?"
 ### 299 ###
-"[Do] [you] [have] [the] [time]?" "[It]'[s] [a] [quarter] [to] [seven]." "[He] [must] [be] [home] [by] [now]. [Why] [not] [drop] [by] [his] [place] [and] [say] [hello]?" "[Yeah], [why] [not]?"
+"[Do]  [you]  [have]  [the]  [time] ?" "It's [a]  [quarter]  [to]  [seven] ." "[He]  [must]  [be]  [home]  [by]  [now] . [Why]  [not]  [drop]  [by]  [his]  [place]  [and]  [say]  [hello] ?" "[Yeah] , [why]  [not] ?"
 ### 300 ###
-"[It]'[s] [evident] [Charlie] [is] [crazy] [about] [my] [cousin] [Cindy]." "[You]'[ve] [got] [to] [be] [kidding]! [Clearly], [that] [can]'[t] [be] [right] [because] [he] [loves] [me]!"
+"It's [evident]  [Charlie]  [is]  [crazy]  [about]  [my]  [cousin]  [Cindy] ." "You've [got]  [to]  [be]  [kidding] ! [Clearly] , [that]  can't [be]  [right]  [because]  [he]  [loves]  [me] !"
 ### 301 ###
-"[The] [vending] [machine] [is] [out] [of] [order] [again]! [I] [bet] [it]'[s] [defective]." "[I] [suppose] [we] [should] [tell] [the] [manufacturer] [to] [replace] [it] [with] [a] [new] [one]."
+"[The]  [vending]  [machine]  [is]  [out]  [of]  [order]  [again] ! [I]  [bet]  it's [defective] ." "[I]  [suppose]  [we]  [should]  [tell]  [the]  [manufacturer]  [to]  [replace]  [it]  [with]  [a]  [new]  [one] ."
 ### 302 ###
-[After] [the] [operation] [to] [remove] [the] [tumor], [the] [surgeon] [said], "[The] [patient] [should] [be] [restored] [to] [good] [health] [in] [a] [month] [or] [so]."
+[After]  [the]  [operation]  [to]  [remove]  [the]  [tumor] , [the]  [surgeon]  [said] , "[The]  [patient]  [should]  [be]  [restored]  [to]  [good]  [health]  [in]  [a]  [month]  [or]  [so] ."
 ### 303 ###
-[The] [unusual] [notion] [may] [have] [struck] [many] [of] [you] [as] [absurd] [and] [out] [of] [the] [question]. [In] [a] [sense], [however], [it] [is] [totally] [rational] [and] [coherent].
+[The]  [unusual]  [notion]  [may]  [have]  [struck]  [many]  [of]  [you]  [as]  [absurd]  [and]  [out]  [of]  [the]  [question] . [In]  [a]  [sense] , [however] , [it]  [is]  [totally]  [rational]  [and]  [coherent] .
 ### 304 ###
-"[There]'[s] [a] [pile] [of] [scattered] [trash]: [empty] [bottles], [cans], [and] [plastic] [bags]." "[Some] [people] [must] [have] [had] [a] [party] [or] [something]."
+"There's [a]  [pile]  [of]  [scattered]  [trash] : [empty]  [bottles] , [cans] , [and]  [plastic]  [bags] ." "[Some]  [people]  [must]  [have]  [had]  [a]  [party]  [or]  [something] ."
 ### 305 ###
-[It] [seems] [that] [these] [outdated] [regulations] [have] [long] [hindered] [the] [progress] [of] [the] [distribution] [industry]. [We] [should] [have] [done] [away] [with] [them] [long] [ago].
+[It]  [seems]  [that]  [these]  [outdated]  [regulations]  [have]  [long]  [hindered]  [the]  [progress]  [of]  [the]  [distribution]  [industry] . [We]  [should]  [have]  [done]  [away]  [with]  [them]  [long]  [ago] .
 ### 306 ###
-[Shortly] [afterward], [Dave] [confided], "[Between] [you] [and] [me], [I] [didn]'[t] [dare] [tell] [the] [truth] [for] [fear] [that] [I] [would] [be] [held] [responsible] [for] [it]."
+[Shortly]  [afterward] , [Dave]  [confided] , "[Between]  [you]  [and]  [me] , [I]  didn't [dare]  [tell]  [the]  [truth]  [for]  [fear]  [that]  [I]  [would]  [be]  [held]  [responsible]  [for]  [it] ."
 ### 307 ###
-[Sid] [recalled], "[Aside] [from] [all] [types] [of] [social] [oppression], [we] [all] [had] [to] [contend] [with] [obstinate] [ignorance] [and] [prejudice]."
+[Sid]  [recalled] , "[Aside]  [from]  [all]  [types]  [of]  [social]  [oppression] , [we]  [all]  [had]  [to]  [contend]  [with]  [obstinate]  [ignorance]  [and]  [prejudice] ."
 ### 308 ###
-"[That] [corrupt] [politician] [is] [to] [be] [appointed] [cabinet] [minister]." "[This] [appointment] [is] [likely] [to] [give] [rise] [to] [a] [fierce] [controversy] [among] [the] [general] [public]."
+"[That]  [corrupt]  [politician]  [is]  [to]  [be]  [appointed]  [cabinet]  [minister] ." "[This]  [appointment]  [is]  [likely]  [to]  [give]  [rise]  [to]  [a]  [fierce]  [controversy]  [among]  [the]  [general]  [public] ."
 ### 309 ###
-[I] [saw] [him] [off] [at] [the] [wharf]. [I] [kept] [waving] [until] [he] [was] [out] [of] [sight]. [By] [a] [strange] [twist] [of] [fate], [I] [was] [never] [to] [see] [him] [again].
+[I]  [saw]  [him]  [off]  [at]  [the]  [wharf] . [I]  [kept]  [waving]  [until]  [he]  [was]  [out]  [of]  [sight] . [By]  [a]  [strange]  [twist]  [of]  [fate] , [I]  [was]  [never]  [to]  [see]  [him]  [again] .
 ### 310 ###
-"[I] [advise] [you] [to] [keep] [away] [from] [them]. [I] [tell] [you], [they] [are] [not] [to] [be] [trusted]." "[On] [the] [contrary], [they] [would] [be] [the] [last] [people] [to] [deceive] [you]. [I] [have] [faith] [in] [them]."
+"[I]  [advise]  [you]  [to]  [keep]  [away]  [from]  [them] . [I]  [tell]  [you] , [they]  [are]  [not]  [to]  [be]  [trusted] ." "[On]  [the]  [contrary] , [they]  [would]  [be]  [the]  [last]  [people]  [to]  [deceive]  [you] . [I]  [have]  [faith]  [in]  [them] ."
 ### 311 ###
-[It] [is] [absolutely] [vital] [to] [reconcile] [freedom] [with] [basic] [discipline] [in] [raising] [your] [child]. [If] [you] [indulge] [him] [too] [much], [you] [will] [spoil] [him].
+[It]  [is]  [absolutely]  [vital]  [to]  [reconcile]  [freedom]  [with]  [basic]  [discipline]  [in]  [raising]  [your]  [child] . [If]  [you]  [indulge]  [him]  [too]  [much] , [you]  [will]  [spoil]  [him] .
 ### 312 ###
-"[I] [was] [fed] [up] [with] [school], [because] [if] [I] [was] [conspicuous] [I] [was] [excluded] [from] [the] [activities] [of] [my] [group]." "[That]'[s] [true] [of] [our] [society] [as] [a] [whole]."
+"[I]  [was]  [fed]  [up]  [with]  [school] , [because]  [if]  [I]  [was]  [conspicuous]  [I]  [was]  [excluded]  [from]  [the]  [activities]  [of]  [my]  [group] ." "That's [true]  [of]  [our]  [society]  [as]  [a]  [whole] ."
 ### 313 ###
-"[I] [wonder] [if] [this] [painting] [is] [a] [genuine] [Van] [Gogh]?" "[I] [don]'[t] [think] [so]. [It]'[s] [a] [fake], [that]'[s] [for] [sure]. [If] [it] [were] [real], [it] [wouldn]'[t] [be] [in] [an] [obscure] [hotel] [like] [this]."
+"[I]  [wonder]  [if]  [this]  [painting]  [is]  [a]  [genuine]  [Van]  [Gogh] ?" "[I]  don't [think]  [so] . It's [a]  [fake] , that's [for]  [sure] . [If]  [it]  [were]  [real] , [it]  wouldn't [be]  [in]  [an]  [obscure]  [hotel]  [like]  [this] ."
 ### 314 ###
-"[If] [I] [were] [you], [I] [would] [make] [better] [use] [of] [it]," [Betty] [suggested]. [Amy] [reacted] [with] [rage], "[Mind] [your] [own] [business]. [It] [has] [nothing] [to] [do] [with] [you]."
+"[If]  [I]  [were]  [you] , [I]  [would]  [make]  [better]  [use]  [of]  [it] ," [Betty]  [suggested] . [Amy]  [reacted]  [with]  [rage] , "[Mind]  [your]  [own]  [business] . [It]  [has]  [nothing]  [to]  [do]  [with]  [you] ."
 ### 315 ###
-[Matt] [didn]'[t] [bother] [to] [hide] [his] [anger]. "[If] [it] [weren]'[t] [for] [the] [fact] [that] [he] [is] [senior] [to] [me], [I]'[d] [punch] [him] [in] [the] [face] [and] [pour] [this] [coffee] [on] [his] [bald] [head]."
+[Matt]  didn't [bother]  [to]  [hide]  [his]  [anger] . "[If]  [it]  weren't [for]  [the]  [fact]  [that]  [he]  [is]  [senior]  [to]  [me] , I'd [punch]  [him]  [in]  [the]  [face]  [and]  [pour]  [this]  [coffee]  [on]  [his]  [bald]  [head] ."
 ### 316 ###
-[The] [last] [train] [was] [due] [in] 20 [minutes] [and] [I] [made] [it] [to] [the] [station] [just] [in] [time] [to] [catch] [it]. [If] [I] [had] [missed] [it], [I] [would] [have] [had] [to] [take] [a] [taxi] [home].
+[The]  [last]  [train]  [was]  [due]  [in]  20 [minutes]  [and]  [I]  [made]  [it]  [to]  [the]  [station]  [just]  [in]  [time]  [to]  [catch]  [it] . [If]  [I]  [had]  [missed]  [it] , [I]  [would]  [have]  [had]  [to]  [take]  [a]  [taxi]  [home] .
 ### 317 ###
-[The] [vice] [president] [said], "[If] [it] [hadn]'[t] [been] [for] [that] [extraordinary] [PC] [boom], [we] [couldn]'[t] [have] [expanded] [our] [modest] [enterprise] [into] [a] [multimedia] [giant]."
+[The]  [vice]  [president]  [said] , "[If]  [it]  hadn't [been]  [for]  [that]  [extraordinary]  [PC]  [boom] , [we]  couldn't [have]  [expanded]  [our]  [modest]  [enterprise]  [into]  [a]  [multimedia]  [giant] ."
 ### 318 ###
-"[If] [he] [had] [consulted] [a] [better] [specialist], [he] [would] [still] [be] [alive]." "[What] [do] [you] [say] [to] [charging] [him] [with] [malpractice]?" "[He] [would] [never] [acknowledge] [it]."
+"[If]  [he]  [had]  [consulted]  [a]  [better]  [specialist] , [he]  [would]  [still]  [be]  [alive] ." "[What]  [do]  [you]  [say]  [to]  [charging]  [him]  [with]  [malpractice] ?" "[He]  [would]  [never]  [acknowledge]  [it] ."
 ### 319 ###
-[The] [literary] [critic] [remarked], "[If] [I] [were] [asked] [how] [I] [felt] [when] [I] [happened] [to] [read] [his] [novel], [I] [could] [compare] [it] [to] [love] [at] [first] [sight]."
+[The]  [literary]  [critic]  [remarked] , "[If]  [I]  [were]  [asked]  [how]  [I]  [felt]  [when]  [I]  [happened]  [to]  [read]  [his]  [novel] , [I]  [could]  [compare]  [it]  [to]  [love]  [at]  [first]  [sight] ."
 ### 320 ###
-[We] [ought] [not] [to] [tolerate] [excessive] [packaging]. [If] [we] [were] [to] [put] [an] [end] [to] [this] [wasteful] [practice], [we] [would] [be] [able] [to] [reduce] [both] [cost] [and] [garbage].
+[We]  [ought]  [not]  [to]  [tolerate]  [excessive]  [packaging] . [If]  [we]  [were]  [to]  [put]  [an]  [end]  [to]  [this]  [wasteful]  [practice] , [we]  [would]  [be]  [able]  [to]  [reduce]  [both]  [cost]  [and]  [garbage] .
 ### 321 ###
-[We] [had] [to] [undergo] [a] [major] [transformation], [during] [which] [scores] [of] [people] [were] [laid] [off], [but] [without] [such] [a] [restructuring] [effort], [we] [couldn]'[t] [have] [survived].
+[We]  [had]  [to]  [undergo]  [a]  [major]  [transformation] , [during]  [which]  [scores]  [of]  [people]  [were]  [laid]  [off] , [but]  [without]  [such]  [a]  [restructuring]  [effort] , [we]  couldn't [have]  [survived] .
 ### 322 ###
-[I] [cautioned] [him], "[It] [would] [be] [imprudent], [not] [to] [say] [foolish], [to] [rely] [on] [your] [instincts] [and] [intuition] [all] [the] [time]. [You] [ought] [to] [use] [your] [common] [sense]."
+[I]  [cautioned]  [him] , "[It]  [would]  [be]  [imprudent] , [not]  [to]  [say]  [foolish] , [to]  [rely]  [on]  [your]  [instincts]  [and]  [intuition]  [all]  [the]  [time] . [You]  [ought]  [to]  [use]  [your]  [common]  [sense] ."
 ### 323 ###
-[The] [economist] [warned], "[A] [partial] [treatment] [for] [the] [serious] [but] [stable] [condition] [would] [do] [the] [economy] [more] [harm] [than] [good]."
+[The]  [economist]  [warned] , "[A]  [partial]  [treatment]  [for]  [the]  [serious]  [but]  [stable]  [condition]  [would]  [do]  [the]  [economy]  [more]  [harm]  [than]  [good] ."
 ### 324 ###
-[Not] [knowing] [the] [appropriate] [manners] [for] [the] [formal] [occasion], [I] [felt] [so] [embarrassed] [that] [I] [could] [have] [sunk] [into] [the] [floor].
+[Not]  [knowing]  [the]  [appropriate]  [manners]  [for]  [the]  [formal]  [occasion] , [I]  [felt]  [so]  [embarrassed]  [that]  [I]  [could]  [have]  [sunk]  [into]  [the]  [floor] .
 ### 325 ###
-[Now] [and] [then], [the] [would]-[be] [painter] [sighs] [and] [wishes] [he] [were] [endowed] [with] [an] [artistic] [talent] [for] [painting] [masterpieces] [like] [Renoir]'[s].
+[Now]  [and]  [then] , [the]  [would] -[be]  [painter]  [sighs]  [and]  [wishes]  [he]  [were]  [endowed]  [with]  [an]  [artistic]  [talent]  [for]  [painting]  [masterpieces]  [like]  Renoir's.
 ### 326 ###
-"[I] [wish] [I] [hadn]'[t] [lost] [my] [temper] [and] [said] [such] [a] [nasty] [thing] [to] [her]," [Don] [lamented], "[I] [wish] [she] [would] [forgive] [me]."
+"[I]  [wish]  [I]  hadn't [lost]  [my]  [temper]  [and]  [said]  [such]  [a]  [nasty]  [thing]  [to]  [her] ," [Don]  [lamented] , "[I]  [wish]  [she]  [would]  [forgive]  [me] ."
 ### 327 ###
-"[Would] [it] [be] [all] [right] [if] [I] [used] [your] [mobile] [phone]?" "[By] [all] [means]. [Let]'[s] [see] ... [There] [it] [is]. [It]'[s] [in] [the] [right]-[hand] [corner], [next] [to] [the] [TV] [set]."
+"[Would]  [it]  [be]  [all]  [right]  [if]  [I]  [used]  [your]  [mobile]  [phone] ?" "[By]  [all]  [means] . Let's [see]  ... [There]  [it]  [is] . It's [in]  [the]  [right] -[hand]  [corner] , [next]  [to]  [the]  [TV]  [set] ."
 ### 328 ###
-[The] [note] [said], "[I]'[d] [be] [grateful] [if] [you] [would] [promptly] [deliver] [the] [commodities] [listed] [below], [along] [with] [the] [usual] [goods]."
+[The]  [note]  [said] , "I'd [be]  [grateful]  [if]  [you]  [would]  [promptly]  [deliver]  [the]  [commodities]  [listed]  [below] , [along]  [with]  [the]  [usual]  [goods] ."
 ### 329 ###
-"[I] [wonder] [if] [you] [could] [help] [me] [with] [my] [homework]? [I]'[m] [really] [stuck]. [No] [matter] [how] [I] [read] [it], [this] [paragraph] [doesn]'[t] [seem] [to] [make] [sense]."
+"[I]  [wonder]  [if]  [you]  [could]  [help]  [me]  [with]  [my]  [homework] ? I'm [really]  [stuck] . [No]  [matter]  [how]  [I]  [read]  [it] , [this]  [paragraph]  doesn't [seem]  [to]  [make]  [sense] ."
 ### 330 ###
-"[Do] [you] [mind] [if] [I] [smoke]?" [I] [asked]. [She] [cleared] [her] [throat] [and] [replied], "[I]'[d] [rather] [you] [didn]'[t]. [Honestly], [I] [have] [an] [allergy] [to] [cigarette] [smoke]."
+"[Do]  [you]  [mind]  [if]  [I]  [smoke] ?" [I]  [asked] . [She]  [cleared]  [her]  [throat]  [and]  [replied] , "I'd [rather]  [you]  didn't. [Honestly] , [I]  [have]  [an]  [allergy]  [to]  [cigarette]  [smoke] ."
 ### 331 ###
-[She] [looked] [as] [if] [she] [were] [about] [to] [burst] [into] [tears], [when] [all] [at] [once] [she] [burst] [out] [laughing] [as] [though] [she] [had] [gone] [mad].
+[She]  [looked]  [as]  [if]  [she]  [were]  [about]  [to]  [burst]  [into]  [tears] , [when]  [all]  [at]  [once]  [she]  [burst]  [out]  [laughing]  [as]  [though]  [she]  [had]  [gone]  [mad] .
 ### 332 ###
-[It] [was] [a] [decade] [before] [the] [superpower] [got] [over] [the] [shock] [of] [losing] [the] [war], [and] [it] [took] [even] [longer] [for] [the] [psychological] [scars] [to] [heal].
+[It]  [was]  [a]  [decade]  [before]  [the]  [superpower]  [got]  [over]  [the]  [shock]  [of]  [losing]  [the]  [war] , [and]  [it]  [took]  [even]  [longer]  [for]  [the]  [psychological]  [scars]  [to]  [heal] .
 ### 333 ###
-[It] [has] [been] [ten] [years] [since] [we] [set] [about] [extending] [this] [road] [to] [the] [city] [center], [but] [as] [it] [is], [it] [will] [probably] [be] [another] [two] [years] [before] [we] [complete] [it].
+[It]  [has]  [been]  [ten]  [years]  [since]  [we]  [set]  [about]  [extending]  [this]  [road]  [to]  [the]  [city]  [center] , [but]  [as]  [it]  [is] , [it]  [will]  [probably]  [be]  [another]  [two]  [years]  [before]  [we]  [complete]  [it] .
 ### 334 ###
-[He] [proclaimed], "[Terrorism] [is] [a] [great] [threat] [to] [world] [peace]. [It] [is] [time] [the] [international] [community] [cooperated] [in] [eliminating] [it] [once] [and] [for] [all]."
+[He]  [proclaimed] , "[Terrorism]  [is]  [a]  [great]  [threat]  [to]  [world]  [peace] . [It]  [is]  [time]  [the]  [international]  [community]  [cooperated]  [in]  [eliminating]  [it]  [once]  [and]  [for]  [all] ."
 ### 335 ###
-[In] [spite] [of] [her] [annoyance], [Miss] [Ford] [scolded] [the] [mischievous] [pupil] [mildly] [by] [saying], "[It] [is] [high] [time] [you] [learned] [to] [tell] [right] [from] [wrong]."
+[In]  [spite]  [of]  [her]  [annoyance] , [Miss]  [Ford]  [scolded]  [the]  [mischievous]  [pupil]  [mildly]  [by]  [saying] , "[It]  [is]  [high]  [time]  [you]  [learned]  [to]  [tell]  [right]  [from]  [wrong] ."
 ### 336 ###
-[Financial] [institutions] [invested] [heavily] [in] [property]. [With] [land] [prices] [soaring], [it] [was] [extremely] [difficult] [to] [resist] [the] [temptation] [of] [easy] [profits].
+[Financial]  [institutions]  [invested]  [heavily]  [in]  [property] . [With]  [land]  [prices]  [soaring] , [it]  [was]  [extremely]  [difficult]  [to]  [resist]  [the]  [temptation]  [of]  [easy]  [profits] .
 ### 337 ###
-[The] [two] [plants] [look] [exactly] [alike]. [Thus] [it] [would] [be] [all] [but] [impossible] [for] [someone] [other] [than] [a] [botanical] [expert] [to] [distinguish] [one] [from] [the] [other].
+[The]  [two]  [plants]  [look]  [exactly]  [alike] . [Thus]  [it]  [would]  [be]  [all]  [but]  [impossible]  [for]  [someone]  [other]  [than]  [a]  [botanical]  [expert]  [to]  [distinguish]  [one]  [from]  [the]  [other] .
 ### 338 ###
-"[It] [was] [so] [thoughtful] [of] [you] [to] [send] [me] [the] [money]. [You] [saved] [my] [life]. [I]'[m] [much] [obliged]." "[Don]'[t] [mention] [it]. [It] [was] [the] [least] [I] [could] [do]."
+"[It]  [was]  [so]  [thoughtful]  [of]  [you]  [to]  [send]  [me]  [the]  [money] . [You]  [saved]  [my]  [life] . I'm [much]  [obliged] ." "Don't [mention]  [it] . [It]  [was]  [the]  [least]  [I]  [could]  [do] ."
 ### 339 ###
-"[There] [is] [no] [use] [wailing] [about] [past] [failures]. [It]'[s] [no] [use] [crying] [over] [spilt] [milk]." "[You]'[re] [right]. [Let]'[s] [face] [up] [to] [the] [harsh] [reality] [and] [make] [the] [best] [of] [it]."
+"[There]  [is]  [no]  [use]  [wailing]  [about]  [past]  [failures] . It's [no]  [use]  [crying]  [over]  [spilt]  [milk] ." "You're [right] . Let's [face]  [up]  [to]  [the]  [harsh]  [reality]  [and]  [make]  [the]  [best]  [of]  [it] ."
 ### 340 ###
-[It] [was] [worthwhile] [my] [taking] [the] [trouble] [to] [apply] [for] [a] [local] [authority] [grant]. [I] [was] [awarded] [as] [much] [as] $2,000 [by] [the] [city] [council].
+[It]  [was]  [worthwhile]  [my]  [taking]  [the]  [trouble]  [to]  [apply]  [for]  [a]  [local]  [authority]  [grant] . [I]  [was]  [awarded]  [as]  [much]  [as]  $2,000 [by]  [the]  [city]  [council] .
 ### 341 ###
-[It] [was] [silly] [of] [me] [but] [I] [took] [it] [for] [granted] [that] [she] [was] [content] [with] [her] [life]. [It] [never] [occurred] [to] [me] [that] [she] [would] [be] [full] [of] [dissatisfaction].
+[It]  [was]  [silly]  [of]  [me]  [but]  [I]  [took]  [it]  [for]  [granted]  [that]  [she]  [was]  [content]  [with]  [her]  [life] . [It]  [never]  [occurred]  [to]  [me]  [that]  [she]  [would]  [be]  [full]  [of]  [dissatisfaction] .
 ### 342 ###
-[It] [is] [said] [that] [this] [unique] [tradition] [is] [related] [to] [that] [sacred] [custom] [and] [each] [dates] [back] [to] [medieval] [times] [and] [ancient] [times], [respectively].
+[It]  [is]  [said]  [that]  [this]  [unique]  [tradition]  [is]  [related]  [to]  [that]  [sacred]  [custom]  [and]  [each]  [dates]  [back]  [to]  [medieval]  [times]  [and]  [ancient]  [times] , [respectively] .
 ### 343 ###
-"[No] [wonder] [the] [negotiation] [broke] [down]! [To] [begin] [with], [our] [representatives] [are] [not] [good] [at] [bargaining] [with] [tough] [negotiators]."
+"[No]  [wonder]  [the]  [negotiation]  [broke]  [down] ! [To]  [begin]  [with] , [our]  [representatives]  [are]  [not]  [good]  [at]  [bargaining]  [with]  [tough]  [negotiators] ."
 ### 344 ###
-[We] [have] [it] [from] [a] [reliable] [source] [that], [owing] [to] [a] [long] [drought] [and] [famine], [the] [isolated] [country] [is] [in] [need] [of] [outside] [support], [including] [food] [aid].
+[We]  [have]  [it]  [from]  [a]  [reliable]  [source]  [that] , [owing]  [to]  [a]  [long]  [drought]  [and]  [famine] , [the]  [isolated]  [country]  [is]  [in]  [need]  [of]  [outside]  [support] , [including]  [food]  [aid] .
 ### 345 ###
-[Conventional] [wisdom] [has] [it] [that] [labor] [productivity] [rises] [in] [proportion] [to] [incentives] [offered], [such] [as] [bonus] [payments] [and] [speedy] [promotion].
+[Conventional]  [wisdom]  [has]  [it]  [that]  [labor]  [productivity]  [rises]  [in]  [proportion]  [to]  [incentives]  [offered] , [such]  [as]  [bonus]  [payments]  [and]  [speedy]  [promotion] .
 ### 346 ###
-[Bureaucrats] [argued] [that] [it] [was] [desirable] [if] [not] [essential] [that] [the] [proposition] [be] [examined] [in] [minute] [detail] [before] [they] [proceeded] [any] [further].
+[Bureaucrats]  [argued]  [that]  [it]  [was]  [desirable]  [if]  [not]  [essential]  [that]  [the]  [proposition]  [be]  [examined]  [in]  [minute]  [detail]  [before]  [they]  [proceeded]  [any]  [further] .
 ### 347 ###
-[It] [is] [only] [natural] [that] [we] [should] [be] [afraid] [of] [gangsters], [because] [they] [think] [nothing] [of] [resorting] [to] [violence] [in] [order] [to] [resolve] [disputes].
+[It]  [is]  [only]  [natural]  [that]  [we]  [should]  [be]  [afraid]  [of]  [gangsters] , [because]  [they]  [think]  [nothing]  [of]  [resorting]  [to]  [violence]  [in]  [order]  [to]  [resolve]  [disputes] .
 ### 348 ###
-[It] [was] [during] [this] [time] [in] [the] [Heian] [period] [that] [aristocrats] [lived] [in] [luxury] [and] [enjoyed] [wealth] [and] [privilege] [to] [their] [hearts]' [content].
+[It]  [was]  [during]  [this]  [time]  [in]  [the]  [Heian]  [period]  [that]  [aristocrats]  [lived]  [in]  [luxury]  [and]  [enjoyed]  [wealth]  [and]  [privilege]  [to]  [their]  hearts' [content] .
 ### 349 ###
-"[In] [my] [family], [it]'[s] [my] [mom] [who] [wears] [the] [pants], [so] [to] [speak]." "[In] [mine], [it]'[s] [my] [dad] [who] [calls] [the] [shots]. [He]'[s] [in] [charge] [of] [everything]."
+"[In]  [my]  [family] , it's [my]  [mom]  [who]  [wears]  [the]  [pants] , [so]  [to]  [speak] ." "[In]  [mine] , it's [my]  [dad]  [who]  [calls]  [the]  [shots] . He's [in]  [charge]  [of]  [everything] ."
 ### 350 ###
-[The] [gifted] [poet] [stood] [out] [in] [her] [youth], [and] [yet] [it] [wasn]'[t] [until] [she] [turned] 30 [that] [her] [sophisticated] [poetry] [became] [widely] [recognized].
+[The]  [gifted]  [poet]  [stood]  [out]  [in]  [her]  [youth] , [and]  [yet]  [it]  wasn't [until]  [she]  [turned]  30 [that]  [her]  [sophisticated]  [poetry]  [became]  [widely]  [recognized] .
 ### 351 ###
-"[What] [is] [it] [that] [makes] [you] [so] [sure] [of] [yourself] ? [You] [should] [know] [better] [than] [to] [confuse] [popularity] [with] [ability]." "[So], [you]'[re] [jealous] [of] [my] [success] [after] [all]."
+"[What]  [is]  [it]  [that]  [makes]  [you]  [so]  [sure]  [of]  [yourself]  ? [You]  [should]  [know]  [better]  [than]  [to]  [confuse]  [popularity]  [with]  [ability] ." "[So] , you're [jealous]  [of]  [my]  [success]  [after]  [all] ."
 ### 352 ###
-[With] [a] [depressed] [expression] [on] [her] [face], [she] [wondered] [out] [loud], "[Why] [was] [it] [that] [he] [abruptly] [began] [neglecting] [his] [work] [and] [eventually] [abandoned] [us]?"
+[With]  [a]  [depressed]  [expression]  [on]  [her]  [face] , [she]  [wondered]  [out]  [loud] , "[Why]  [was]  [it]  [that]  [he]  [abruptly]  [began]  [neglecting]  [his]  [work]  [and]  [eventually]  [abandoned]  [us] ?"
 ### 353 ###
-"[It]'[s] [disgusting] [the] [way] [they] [exploit] [and] [discriminate] [against] [the] [weak]. [I] [insist] [that] [you] [take] [immediate] [action] [to] [correct] [the] [situation]."
+"It's [disgusting]  [the]  [way]  [they]  [exploit]  [and]  [discriminate]  [against]  [the]  [weak] . [I]  [insist]  [that]  [you]  [take]  [immediate]  [action]  [to]  [correct]  [the]  [situation] ."
 ### 354 ###
-[It] [seemed] [as] [if] [my] [work] [associates] [refrained] [from] [criticizing] [me] [on] [account] [of] [my] [being] [within] [hearing] [distance].
+[It]  [seemed]  [as]  [if]  [my]  [work]  [associates]  [refrained]  [from]  [criticizing]  [me]  [on]  [account]  [of]  [my]  [being]  [within]  [hearing]  [distance] .
 ### 355 ###
-[The] [scandal] [surrounding] [the] [ambassador] [forced] [him] [to] [resign]. [It] [looks] [as] [if] [his] [brilliant] [career] [as] [an] [elite] [diplomat] [is] [as] [good] [as] [over].
+[The]  [scandal]  [surrounding]  [the]  [ambassador]  [forced]  [him]  [to]  [resign] . [It]  [looks]  [as]  [if]  [his]  [brilliant]  [career]  [as]  [an]  [elite]  [diplomat]  [is]  [as]  [good]  [as]  [over] .
 ### 356 ###
-"[You] [look] [pale]. [What]'[s] [the] [matter]?" "[I] [don]'[t] [have] [any] [appetite]. [Neither] [the] [oily] [food] [nor] [the] [humid] [heat] [here] [agrees] [with] [me]." "[You] [will] [adjust] [in] [a] [while]."
+"[You]  [look]  [pale] . What's [the]  [matter] ?" "[I]  don't [have]  [any]  [appetite] . [Neither]  [the]  [oily]  [food]  [nor]  [the]  [humid]  [heat]  [here]  [agrees]  [with]  [me] ." "[You]  [will]  [adjust]  [in]  [a]  [while] ."
 ### 357 ###
-[You] [can] [hardly] [assess] [intelligence] [from] [tests]. [Therefore], [just] [because] [you] [get] [bad] [grades], [it] [doesn]'[t] [necessarily] [follow] [you] [are] [intellectually] [inferior].
+[You]  [can]  [hardly]  [assess]  [intelligence]  [from]  [tests] . [Therefore] , [just]  [because]  [you]  [get]  [bad]  [grades] , [it]  doesn't [necessarily]  [follow]  [you]  [are]  [intellectually]  [inferior] .
 ### 358 ###
-[There] [is] [hardly] [any] [doubt] [that] [their] [ambiguous] [reply] [is] [meant] [to] [delay] [the] [signing] [of] [the] [contract] [on] [purpose] [and] [extract] [more] [favorable] [terms] [from] [us].
+[There]  [is]  [hardly]  [any]  [doubt]  [that]  [their]  [ambiguous]  [reply]  [is]  [meant]  [to]  [delay]  [the]  [signing]  [of]  [the]  [contract]  [on]  [purpose]  [and]  [extract]  [more]  [favorable]  [terms]  [from]  [us] .
 ### 359 ###
-[I] [share] [the] [housework] [with] [Betty], [so] [I] [hardly] [ever] [do] [the] [laundry] [and] [she] [rarely], [if] [ever], [does] [the] [dishes] [or] [the] [cleaning].
+[I]  [share]  [the]  [housework]  [with]  [Betty] , [so]  [I]  [hardly]  [ever]  [do]  [the]  [laundry]  [and]  [she]  [rarely] , [if]  [ever] , [does]  [the]  [dishes]  [or]  [the]  [cleaning] .
 ### 360 ###
-[You] [ought] [to] [have] [an] [eye] [for] [information]. [Just] [as] [not] [every] [postage] [stamp] [is] [worthy] [of] [collection], [not] [all] [information] [is] [worth] [gathering].
+[You]  [ought]  [to]  [have]  [an]  [eye]  [for]  [information] . [Just]  [as]  [not]  [every]  [postage]  [stamp]  [is]  [worthy]  [of]  [collection] , [not]  [all]  [information]  [is]  [worth]  [gathering] .
 ### 361 ###
-[A] [literary] [work] [translated] [into] [a] [foreign] [language] [does] [not] [always] [convey] [the] [subtle] [nuances] [contained] [in] [the] [original].
+[A]  [literary]  [work]  [translated]  [into]  [a]  [foreign]  [language]  [does]  [not]  [always]  [convey]  [the]  [subtle]  [nuances]  [contained]  [in]  [the]  [original] .
 ### 362 ###
-"[The] [girl]'[s] [story] [is] [so] [pathetic] [I] [can]'[t] [read] [it] [without] [being] [moved] [to] [tears]." "[Neither] [can] [I]. [I] [can]'[t] [read] [the] [last] [episode] [without] [crying]."
+"[The]  girl's [story]  [is]  [so]  [pathetic]  [I]  can't [read]  [it]  [without]  [being]  [moved]  [to]  [tears] ." "[Neither]  [can]  [I] . [I]  can't [read]  [the]  [last]  [episode]  [without]  [crying] ."
 ### 363 ###
-[Jeff] [is] [fond] [of] [boasting], "[People] [occasionally] [fail] [to] [retain] [their] [self]-[control] [but], [in] [my] [case], [reason] [never] [fails] [to] [prevail] [over] [emotion]."
+[Jeff]  [is]  [fond]  [of]  [boasting] , "[People]  [occasionally]  [fail]  [to]  [retain]  [their]  [self] -[control]  [but] , [in]  [my]  [case] , [reason]  [never]  [fails]  [to]  [prevail]  [over]  [emotion] ."
 ### 364 ###
-[The] [last] [thing] [the] [Christians] [and] [the] [Muslims] [wanted] [to] [do] [was] [ruin] [the] [fragile] [peace] [accord] [they] [had] [signed] [the] [previous] [year].
+[The]  [last]  [thing]  [the]  [Christians]  [and]  [the]  [Muslims]  [wanted]  [to]  [do]  [was]  [ruin]  [the]  [fragile]  [peace]  [accord]  [they]  [had]  [signed]  [the]  [previous]  [year] .
 ### 365 ###
-"[More] [haste], [less] [speed]." [This] [expression] [is] [a] [paradox], [not] [an] [irony]. [Though] [both] [may] [sound] [similar], [they] [are] [anything] [but] [the] [same].
+"[More]  [haste] , [less]  [speed] ." [This]  [expression]  [is]  [a]  [paradox] , [not]  [an]  [irony] . [Though]  [both]  [may]  [sound]  [similar] , [they]  [are]  [anything]  [but]  [the]  [same] .
 ### 366 ###
-"[I] [despise] [that] [man]. [He] [is] [sarcastic]. [Besides], [he] [does] [nothing] [but] [find] [fault] [with] [us]." "[You] [can] [say] [that] [again]. [I] [have] [nothing] [but] [scorn] [for] [him], [too]."
+"[I]  [despise]  [that]  [man] . [He]  [is]  [sarcastic] . [Besides] , [he]  [does]  [nothing]  [but]  [find]  [fault]  [with]  [us] ." "[You]  [can]  [say]  [that]  [again] . [I]  [have]  [nothing]  [but]  [scorn]  [for]  [him] , [too] ."
 ### 367 ###
-[His] [response] [was] [one] [of] [ridicule]. "[I] [don]'[t] [believe] [in] [that] [superstition]. [It]'[s] [ridiculous]. [It] [has] [no] [solid] [scientific] [basis]. [There] [is] [no] [concrete] [proof]."
+[His]  [response]  [was]  [one]  [of]  [ridicule] . "[I]  don't [believe]  [in]  [that]  [superstition] . It's [ridiculous] . [It]  [has]  [no]  [solid]  [scientific]  [basis] . [There]  [is]  [no]  [concrete]  [proof] ."
 ### 368 ###
-"[Incredible]! [It]'[s] [beyond] [belief]! [Betty] [says] [she] [fell] [in] [love] [with] [Jack], [the] [coward]." "[As] [the] [saying] [goes], [there] [is] [no] [accounting] [for] [taste]."
+"[Incredible] ! It's [beyond]  [belief] ! [Betty]  [says]  [she]  [fell]  [in]  [love]  [with]  [Jack] , [the]  [coward] ." "[As]  [the]  [saying]  [goes] , [there]  [is]  [no]  [accounting]  [for]  [taste] ."
 ### 369 ###
-[This] [is] [how] [the] [moral] [story] [begins]: "[Once] [upon] [a] [time] [there] [lived] [a] [friendly], [good]-[natured] [man] [and] [a] [cunning], [narrow]-[minded] [neighbor]."
+[This]  [is]  [how]  [the]  [moral]  [story]  [begins] : "[Once]  [upon]  [a]  [time]  [there]  [lived]  [a]  [friendly] , [good] -[natured]  [man]  [and]  [a]  [cunning] , [narrow] -[minded]  [neighbor] ."
 ### 370 ###
-[Ahead] [of] [the] [post]-[Soviet] [republics] [lay] [a] [multitude] [of] [conflicts] [and] [frictions] [arising] [from] [profound] [mutual] [hatred] [and] [hostility].
+[Ahead]  [of]  [the]  [post] -[Soviet]  [republics]  [lay]  [a]  [multitude]  [of]  [conflicts]  [and]  [frictions]  [arising]  [from]  [profound]  [mutual]  [hatred]  [and]  [hostility] .
 ### 371 ###
-"[I] [hold] [interpreters] [in] [high] [esteem]. [I] [envy] [their] [impressive] [command] [of] [more] [than] [one] [language]." "[So] [do] [I]. [I] [can]'[t] [help] [but] [admire] [them]."
+"[I]  [hold]  [interpreters]  [in]  [high]  [esteem] . [I]  [envy]  [their]  [impressive]  [command]  [of]  [more]  [than]  [one]  [language] ." "[So]  [do]  [I] . [I]  can't [help]  [but]  [admire]  [them] ."
 ### 372 ###
-[I] [entered] [the] [kitchen] [and] [turned] [on] [the] [electric] [heater], [but] [hardly] [had] [I] [switched] [on] [the] [microwave] [oven] [when] [all] [the] [lights] [went] [out].
+[I]  [entered]  [the]  [kitchen]  [and]  [turned]  [on]  [the]  [electric]  [heater] , [but]  [hardly]  [had]  [I]  [switched]  [on]  [the]  [microwave]  [oven]  [when]  [all]  [the]  [lights]  [went]  [out] .
 ### 373 ###
-[No] [sooner] [had] [he] [gotten] [out] [of] [the] [limo] [than] [aggressive] [reporters] [rushed] [forward] [in] [force] [and] [asked] [him] [if] [he] [had] [taken] [bribes], [but] [he] [declined] [to] [comment].
+[No]  [sooner]  [had]  [he]  [gotten]  [out]  [of]  [the]  [limo]  [than]  [aggressive]  [reporters]  [rushed]  [forward]  [in]  [force]  [and]  [asked]  [him]  [if]  [he]  [had]  [taken]  [bribes] , [but]  [he]  [declined]  [to]  [comment] .
 ### 374 ###
-[Should] [you] [find] [our] [service] [useful], [further] [information] [can] [be] [obtained] [by] [contacting] [our] [office]. [Please] [feel] [free] [to] [e]-[mail] [or] [telephone] [us].
+[Should]  [you]  [find]  [our]  [service]  [useful] , [further]  [information]  [can]  [be]  [obtained]  [by]  [contacting]  [our]  [office] . [Please]  [feel]  [free]  [to]  [e] -[mail]  [or]  [telephone]  [us] .
 ### 375 ###
-"[Why] [he] [acted] [like] [that] [I] [don]'[t] [know]." "[Ray] [has] [a] [double] [personality]. [As] [a] [rule] [he] [is] [polite] [and] [gentle], [but] [he] [can] [be] [rude] [and] [coarse] [from] [time] [to] [time]."
+"[Why]  [he]  [acted]  [like]  [that]  [I]  don't [know] ." "[Ray]  [has]  [a]  [double]  [personality] . [As]  [a]  [rule]  [he]  [is]  [polite]  [and]  [gentle] , [but]  [he]  [can]  [be]  [rude]  [and]  [coarse]  [from]  [time]  [to]  [time] ."
 ### 376 ###
-[Scratching] [his] [head], [the] [section] [chief] [told] [me], "[I] [regret] [to] [say] [that], [ingenious] [though] [your] [method] [is], [it] [can] [scarcely] [be] [regarded] [as] [practical]."
+[Scratching]  [his]  [head] , [the]  [section]  [chief]  [told]  [me] , "[I]  [regret]  [to]  [say]  [that] , [ingenious]  [though]  [your]  [method]  [is] , [it]  [can]  [scarcely]  [be]  [regarded]  [as]  [practical] ."
 ### 377 ###
-[The] [warrior] [was] [captured] [and] [tortured]. [Being] [forced] [as] [he] [was] [to] [beg] [for] [mercy], [he] [nevertheless] [held] [himself] [back], [thinking] [it] [would] [only] [humiliate] [him].
+[The]  [warrior]  [was]  [captured]  [and]  [tortured] . [Being]  [forced]  [as]  [he]  [was]  [to]  [beg]  [for]  [mercy] , [he]  [nevertheless]  [held]  [himself]  [back] , [thinking]  [it]  [would]  [only]  [humiliate]  [him] .
 ### 378 ###
-[In] [the] [trial], [the] [judge] [passed] [a] [light] [sentence] [on] [the] [accused], [taking] [into] [account] [the] [fact] [that] [he] [had] [had] [an] [unhappy] [childhood].
+[In]  [the]  [trial] , [the]  [judge]  [passed]  [a]  [light]  [sentence]  [on]  [the]  [accused] , [taking]  [into]  [account]  [the]  [fact]  [that]  [he]  [had]  [had]  [an]  [unhappy]  [childhood] .
 ### 379 ###
-[The] [unexpected] [disaster] [brought] [home] [to] [us] [the] [reality] [that] [it] [is] [one] [thing] [to] [devise] [a] [splendid] [plan] [and] [quite] [another] [to] [put] [it] [into] [practice].
+[The]  [unexpected]  [disaster]  [brought]  [home]  [to]  [us]  [the]  [reality]  [that]  [it]  [is]  [one]  [thing]  [to]  [devise]  [a]  [splendid]  [plan]  [and]  [quite]  [another]  [to]  [put]  [it]  [into]  [practice] .
 ### 380 ###
-[The] [experienced] [counselor] [urged] [the] [worried] [mother] [to] [keep] [in] [mind] [that] [resistance] [to] [parents] [is] [an] [inevitable] [part] [of] [growing] [up].
+[The]  [experienced]  [counselor]  [urged]  [the]  [worried]  [mother]  [to]  [keep]  [in]  [mind]  [that]  [resistance]  [to]  [parents]  [is]  [an]  [inevitable]  [part]  [of]  [growing]  [up] .
 ### 381 ###
-"[I]'[m] [exhausted]." "[I] [beg] [your] [pardon]?" "[I]'[m] [tired], [so] [let]'[s] [call] [it] [a] [day]." "[No] [way]! [We] [mustn]'[t] [put] [off] [till] [tomorrow] [what] [we] [can] [do] [today]."
+"I'm [exhausted] ." "[I]  [beg]  [your]  [pardon] ?" "I'm [tired] , [so]  let's [call]  [it]  [a]  [day] ." "[No]  [way] ! [We]  mustn't [put]  [off]  [till]  [tomorrow]  [what]  [we]  [can]  [do]  [today] ."
 ### 382 ###
-[Sleep] [is] [to] [the] [brain] [what] [food] [is] [to] [the] [body]. [That] [is] [to] [say], [if] [deprived] [of] [adequate] [sleep], [the] [brain] [cannot] [function] [properly].
+[Sleep]  [is]  [to]  [the]  [brain]  [what]  [food]  [is]  [to]  [the]  [body] . [That]  [is]  [to]  [say] , [if]  [deprived]  [of]  [adequate]  [sleep] , [the]  [brain]  [cannot]  [function]  [properly] .
 ### 383 ###
-[It] [appears] [that] [fresh] [evidence] [has] [lately] [come] [to] [light] [which] [suggests] [that] [the] [witness]'[s] [testimony] [in] [court] [may] [have] [been] [made] [up].
+[It]  [appears]  [that]  [fresh]  [evidence]  [has]  [lately]  [come]  [to]  [light]  [which]  [suggests]  [that]  [the]  witness's [testimony]  [in]  [court]  [may]  [have]  [been]  [made]  [up] .
 ### 384 ###
-[Jack]'[s] [account] [of] [what] [occurred] [and] [why] [was] [concise] [and] [precise]. [In] [contrast], [Andy]'[s] [was] [redundant] [and] [not] [quite] [accurate].
+Jack's [account]  [of]  [what]  [occurred]  [and]  [why]  [was]  [concise]  [and]  [precise] . [In]  [contrast] , Andy's [was]  [redundant]  [and]  [not]  [quite]  [accurate] .
 ### 385 ###
-"[If] [the] [recession] [drags] [on], [wages] [will] [be] [frozen] [or] [lowered]." "[I] [hope] [not]. [Wage] [earners] [and] [salaried] [workers] [alike] [already] [find] [it] [hard] [to] [make] [ends] [meet]."
+"[If]  [the]  [recession]  [drags]  [on] , [wages]  [will]  [be]  [frozen]  [or]  [lowered] ." "[I]  [hope]  [not] . [Wage]  [earners]  [and]  [salaried]  [workers]  [alike]  [already]  [find]  [it]  [hard]  [to]  [make]  [ends]  [meet] ."
 ### 386 ###
-[An] [estimate] [submitted] [by] [a] [think] [tank] [indicated] [that] [by] 2002 [the] [budget] [deficit] [would] [amount] [to] 430 [trillion] [yen] [and] [the] [trade] [surplus] 130 [billion] [dollars].
+[An]  [estimate]  [submitted]  [by]  [a]  [think]  [tank]  [indicated]  [that]  [by]  2002 [the]  [budget]  [deficit]  [would]  [amount]  [to]  430 [trillion]  [yen]  [and]  [the]  [trade]  [surplus]  130 [billion]  [dollars] .
 ### 387 ###
-[The] [products] [made] [of] [this] [type] [of] [vinyl] [have] [one] [negative] [feature] [in] [common]; [they] [give] [off] [poisonous] [gas], [namely] [dioxin], [if] [burnt] [at] [low] [temperatures].
+[The]  [products]  [made]  [of]  [this]  [type]  [of]  [vinyl]  [have]  [one]  [negative]  [feature]  [in]  [common] ; [they]  [give]  [off]  [poisonous]  [gas] , [namely]  [dioxin] , [if]  [burnt]  [at]  [low]  [temperatures] .
 ### 388 ###
-[When] [interviewed], [he] [blamed] [the] [lost] [match] [on] [the] [umpire]'[s] [decision]. "[To] [put] [it] [bluntly], [I] [was] [defeated] [by] [the] [umpire], [not] [by] [my] [opponent]."
+[When]  [interviewed] , [he]  [blamed]  [the]  [lost]  [match]  [on]  [the]  umpire's [decision] . "[To]  [put]  [it]  [bluntly] , [I]  [was]  [defeated]  [by]  [the]  [umpire] , [not]  [by]  [my]  [opponent] ."
 ### 389 ###
-[It] [goes] [without] [saying] [that] [children], [as] [well] [as] [grown]-[ups], [have] [fundamental] [human] [rights], [as] [stated] [and] [guaranteed] [in] [the] [constitution].
+[It]  [goes]  [without]  [saying]  [that]  [children] , [as]  [well]  [as]  [grown] -[ups] , [have]  [fundamental]  [human]  [rights] , [as]  [stated]  [and]  [guaranteed]  [in]  [the]  [constitution] .
 ### 390 ###
-[One] [of] [the] [principles] [on] [which] [our] [judicial] [system] [is] [founded] [is] [the] [assumption] [that] [one] [is] [presumed] [innocent] [until] [proven] [guilty].
+[One]  [of]  [the]  [principles]  [on]  [which]  [our]  [judicial]  [system]  [is]  [founded]  [is]  [the]  [assumption]  [that]  [one]  [is]  [presumed]  [innocent]  [until]  [proven]  [guilty] .
 ### 391 ###
-[He] [complained], "[We] [have] [some] [rigid] [rules] [to] [observe] [while] [on] [duty]. [For] [instance], [we] [are] [strictly] [prohibited] [from] [smoking] [and] [eating]."
+[He]  [complained] , "[We]  [have]  [some]  [rigid]  [rules]  [to]  [observe]  [while]  [on]  [duty] . [For]  [instance] , [we]  [are]  [strictly]  [prohibited]  [from]  [smoking]  [and]  [eating] ."
 ### 392 ###
-[Make] [sure] [you] [bend] [your] [legs] [when] [lifting] [a] [heavy] [load]; [otherwise], [you]'[re] [liable] [to] [injure] [your] [back] [muscles] [by] [putting] [too] [much] [strain] [on] [them].
+[Make]  [sure]  [you]  [bend]  [your]  [legs]  [when]  [lifting]  [a]  [heavy]  [load] ; [otherwise] , you're [liable]  [to]  [injure]  [your]  [back]  [muscles]  [by]  [putting]  [too]  [much]  [strain]  [on]  [them] .
 ### 393 ###
-[Following] [two] [fighter] [planes], [a] [majestic] [bomber] [called] [the] [B]-59 [took] [off] [and] [gained] [velocity] [and] [altitude], [as] [if] [defying] [the] [law] [of] [gravity].
+[Following]  [two]  [fighter]  [planes] , [a]  [majestic]  [bomber]  [called]  [the]  [B] -59 [took]  [off]  [and]  [gained]  [velocity]  [and]  [altitude] , [as]  [if]  [defying]  [the]  [law]  [of]  [gravity] .
 ### 394 ###
-"[If] [possible], [I]'[d] [like] [you] [to] [postpone] [your] [arrival]. [Right] [now], [my] [office] [is] [in] [a] [state] [of] [total] [chaos]." "[All] [right]. [If] [necessary], [I]'[ll] [change] [the] [date]."
+"[If]  [possible] , I'd [like]  [you]  [to]  [postpone]  [your]  [arrival] . [Right]  [now] , [my]  [office]  [is]  [in]  [a]  [state]  [of]  [total]  [chaos] ." "[All]  [right] . [If]  [necessary] , I'll [change]  [the]  [date] ."
 ### 395 ###
-"[I] [have] [a] [hangover]. [My] [head] [is] [pounding]. [At] [the] [reunion] [last] [night], [I] [had] [such] [a] [good] [time] [that] [I] [ended] [up] [drinking] [more] [than] [I] [should]."
+"[I]  [have]  [a]  [hangover] . [My]  [head]  [is]  [pounding] . [At]  [the]  [reunion]  [last]  [night] , [I]  [had]  [such]  [a]  [good]  [time]  [that]  [I]  [ended]  [up]  [drinking]  [more]  [than]  [I]  [should] ."
 ### 396 ###
-[Nowadays], [people], [especially] [urbanites], [are] [much] [more] [sensitive] [to] [environmental] [issues] [than] [they] [were] [in] [the] [past], [say], [in] [the] [early] 90s.
+[Nowadays] , [people] , [especially]  [urbanites] , [are]  [much]  [more]  [sensitive]  [to]  [environmental]  [issues]  [than]  [they]  [were]  [in]  [the]  [past] , [say] , [in]  [the]  [early]  90s.
 ### 397 ###
-"[Tell] [me] [your] [candid] [opinion]. [In] [what] [respect] [are] [they] [superior] [to] [us]?" "[In] [terms] [of] [brand] [image] [and], [above] [all], [variety] [of] [merchandise]."
+"[Tell]  [me]  [your]  [candid]  [opinion] . [In]  [what]  [respect]  [are]  [they]  [superior]  [to]  [us] ?" "[In]  [terms]  [of]  [brand]  [image]  [and] , [above]  [all] , [variety]  [of]  [merchandise] ."
 ### 398 ###
-[In] [a] [quivering] [voice], [the] [widow] [dwelt] [at] [length] [on] [the] [physical] [and] [emotional] [sufferings] [her] [husband] [endured] [prior] [to] [his] [death].
+[In]  [a]  [quivering]  [voice] , [the]  [widow]  [dwelt]  [at]  [length]  [on]  [the]  [physical]  [and]  [emotional]  [sufferings]  [her]  [husband]  [endured]  [prior]  [to]  [his]  [death] .
 ### 399 ###
-[The] [flu] [epidemic] [broke] [out] [in] [one] [of] [the] [most] [densely] [populated] [regions] [on] [the] [equator] [and], [consequently], [hundreds] [of] [people] [perished].
+[The]  [flu]  [epidemic]  [broke]  [out]  [in]  [one]  [of]  [the]  [most]  [densely]  [populated]  [regions]  [on]  [the]  [equator]  [and] , [consequently] , [hundreds]  [of]  [people]  [perished] .
 ### 400 ###
-[The] [energy] [generated] [by] [the] [sun] [is] [good] [for] [the] [environment]. [Moreover], [it] [is] [the] [least] [costly] [alternative] [energy] [source].
+[The]  [energy]  [generated]  [by]  [the]  [sun]  [is]  [good]  [for]  [the]  [environment] . [Moreover] , [it]  [is]  [the]  [least]  [costly]  [alternative]  [energy]  [source] .
 ### 401 ###
-[The] [mountaineer] [strove] [to] [fulfill] [his] [ambition] [to] [climb] K2, [the] [second] [highest] [mountain] [in] [the] [world], [and] [he] [achieved] [it] [in] 1900.
+[The]  [mountaineer]  [strove]  [to]  [fulfill]  [his]  [ambition]  [to]  [climb]  K2, [the]  [second]  [highest]  [mountain]  [in]  [the]  [world] , [and]  [he]  [achieved]  [it]  [in]  1900.
 ### 402 ###
-[Although] [it] [was] [a] [superb] [opera], [it] [didn]'[t] [attract] [as] [large] [an] [audience] [as] [I] [had] [expected]. [It] [may] [be] [that] [opera] [is] [no] [longer] [a] [profitable] [proposition].
+[Although]  [it]  [was]  [a]  [superb]  [opera] , [it]  didn't [attract]  [as]  [large]  [an]  [audience]  [as]  [I]  [had]  [expected] . [It]  [may]  [be]  [that]  [opera]  [is]  [no]  [longer]  [a]  [profitable]  [proposition] .
 ### 403 ###
-[The] [geography] [teacher] [taught] [us] [that] [the] [delta] [of] [the] [Mississippi] [was] [more] [subject] [to] [floods] [than] [any] [other] [area] [in] [the] [States].
+[The]  [geography]  [teacher]  [taught]  [us]  [that]  [the]  [delta]  [of]  [the]  [Mississippi]  [was]  [more]  [subject]  [to]  [floods]  [than]  [any]  [other]  [area]  [in]  [the]  [States] .
 ### 404 ###
-[Grieving] [and] [sobbing], [she] [said], "[Nothing] [was] [more] [precious] [than] [my] [baby]; [no] [amount] [of] [money] [will] [ever] [compensate] [for] [the] [agony] [of] [losing] [him]."
+[Grieving]  [and]  [sobbing] , [she]  [said] , "[Nothing]  [was]  [more]  [precious]  [than]  [my]  [baby] ; [no]  [amount]  [of]  [money]  [will]  [ever]  [compensate]  [for]  [the]  [agony]  [of]  [losing]  [him] ."
 ### 405 ###
-"[I]'[ll] [introduce] [you] [to] [Dan], [the] [elder] [twin] [of] [the] [two]. [He] [is] [the] [town]'[s] [most] [eligible] [bachelor]. [I]'[m] [sure] [you]'[ll] [come] [to] [like] [him] [as] [you] [get] [to] [know] [him]."
+"I'll [introduce]  [you]  [to]  [Dan] , [the]  [elder]  [twin]  [of]  [the]  [two] . [He]  [is]  [the]  town's [most]  [eligible]  [bachelor] . I'm [sure]  you'll [come]  [to]  [like]  [him]  [as]  [you]  [get]  [to]  [know]  [him] ."
 ### 406 ###
-[There] [were] [both] [positive] [and] [negative] [aspects] [to] [the] [proposed] [scheme], [but] [as] [usual], [they] [exaggerated] [the] [former] [and] [concealed] [the] [latter].
+[There]  [were]  [both]  [positive]  [and]  [negative]  [aspects]  [to]  [the]  [proposed]  [scheme] , [but]  [as]  [usual] , [they]  [exaggerated]  [the]  [former]  [and]  [concealed]  [the]  [latter] .
 ### 407 ###
-[I] [took] [revenge] [on] [my] [ex]-[boyfriend] [by] [informing] [his] [wife] [of] [our] [love] [affair], [but] [I] [felt] [none] [the] [better] [for] [it]; [in] [fact], [I] [felt] [all] [the] [more] [miserable].
+[I]  [took]  [revenge]  [on]  [my]  [ex] -[boyfriend]  [by]  [informing]  [his]  [wife]  [of]  [our]  [love]  [affair] , [but]  [I]  [felt]  [none]  [the]  [better]  [for]  [it] ; [in]  [fact] , [I]  [felt]  [all]  [the]  [more]  [miserable] .
 ### 408 ###
-[The] [more] [I] [thought] [about] [the] [enormous] [size] [of] [the] [assignment], [the] [less] [confident] [I] [became] [that] [I] [could] [get] [it] [done] [by] [the] [deadline].
+[The]  [more]  [I]  [thought]  [about]  [the]  [enormous]  [size]  [of]  [the]  [assignment] , [the]  [less]  [confident]  [I]  [became]  [that]  [I]  [could]  [get]  [it]  [done]  [by]  [the]  [deadline] .
 ### 409 ###
-[People] [are] [becoming] [more] [and] [more] [health]-[conscious], [and] [an] [increasing] [number] [of] [people] [are] [altering] [their] [eating] [habits] [with] [a] [view] [to] [prolonging] [their] [lives].
+[People]  [are]  [becoming]  [more]  [and]  [more]  [health] -[conscious] , [and]  [an]  [increasing]  [number]  [of]  [people]  [are]  [altering]  [their]  [eating]  [habits]  [with]  [a]  [view]  [to]  [prolonging]  [their]  [lives] .
 ### 410 ###
-[Her] [hand] [was] [trembling] [as] [she] [removed] [the] [dead] [insect]. "[I] [can] [barely] [stand] [the] [sight] [of] [bugs], [worms], [and] [the] [like], [much] [less] [touch] [them]."
+[Her]  [hand]  [was]  [trembling]  [as]  [she]  [removed]  [the]  [dead]  [insect] . "[I]  [can]  [barely]  [stand]  [the]  [sight]  [of]  [bugs] , [worms] , [and]  [the]  [like] , [much]  [less]  [touch]  [them] ."
 ### 411 ###
-[The] [popular] [actor] [shows] [no] [signs] [of] [conceit] [and] [arrogance]. [He] [is] [no] [more] [arrogant] [than] [he] [was] [when] [he] [made] [his] [debut] [in] [his] [late] [teens].
+[The]  [popular]  [actor]  [shows]  [no]  [signs]  [of]  [conceit]  [and]  [arrogance] . [He]  [is]  [no]  [more]  [arrogant]  [than]  [he]  [was]  [when]  [he]  [made]  [his]  [debut]  [in]  [his]  [late]  [teens] .
 ### 412 ###
-[The] [historic] [treaty] [was] [condemned] [as], [at] [best], [a] [feeble] [concession] [and], [at] [worst], [a] [thorough] [submission] [to] [the] [colonial] [powers].
+[The]  [historic]  [treaty]  [was]  [condemned]  [as] , [at]  [best] , [a]  [feeble]  [concession]  [and] , [at]  [worst] , [a]  [thorough]  [submission]  [to]  [the]  [colonial]  [powers] .
 ### 413 ###
-"[How] [come] [those] [guys] [are] [so] [keen] [on] [football]?" "[Beats] [me]. [But] [all] [things] [considered], [it]'[s] [not] [so] [much] [an] [enthusiasm] [as] [an] [obsession]."
+"[How]  [come]  [those]  [guys]  [are]  [so]  [keen]  [on]  [football] ?" "[Beats]  [me] . [But]  [all]  [things]  [considered] , it's [not]  [so]  [much]  [an]  [enthusiasm]  [as]  [an]  [obsession] ."
 ### 414 ###
-[Despite] [the] [fact] [that] [the] [enemy] [was] [twice] [as] [powerful] [as] [we] [were], [our] [brave] [troops], [determined] [to] [defend] [our] [homeland], [refused] [to] [surrender] [or] [retreat].
+[Despite]  [the]  [fact]  [that]  [the]  [enemy]  [was]  [twice]  [as]  [powerful]  [as]  [we]  [were] , [our]  [brave]  [troops] , [determined]  [to]  [defend]  [our]  [homeland] , [refused]  [to]  [surrender]  [or]  [retreat] .
 ### 415 ###
-[It] [takes] [no] [more] [than] [an] [hour] [to] [fly] [to] [the] [top] [of] [the] [peninsula], [but] [it] [takes] [five] [times] [as] [long] [to] [get] [there] [by] [train] [and] 10 [times] [longer] [by] [ship].
+[It]  [takes]  [no]  [more]  [than]  [an]  [hour]  [to]  [fly]  [to]  [the]  [top]  [of]  [the]  [peninsula] , [but]  [it]  [takes]  [five]  [times]  [as]  [long]  [to]  [get]  [there]  [by]  [train]  [and]  10 [times]  [longer]  [by]  [ship] .
 ### 416 ###
-[Immigrants] [make] [up] [a] [quarter] [of] [the] [population] [of] [this] [province] [and] [the] [people] [we] [call] "[guest] [workers]" [account] [for] [a] [third] [of] [its] [workforce].
+[Immigrants]  [make]  [up]  [a]  [quarter]  [of]  [the]  [population]  [of]  [this]  [province]  [and]  [the]  [people]  [we]  [call]  "[guest]  [workers] " [account]  [for]  [a]  [third]  [of]  [its]  [workforce] .
 ### 417 ###
-[This] [industrial] [country] [imports] [roughly] [two]-[thirds] [of] [the] [raw] [materials] [it] [needs] [and] [exports] [approximately] [two]-[fifths] [of] [the] [machinery] [it] [produces].
+[This]  [industrial]  [country]  [imports]  [roughly]  [two] -[thirds]  [of]  [the]  [raw]  [materials]  [it]  [needs]  [and]  [exports]  [approximately]  [two] -[fifths]  [of]  [the]  [machinery]  [it]  [produces] .
 ### 418 ###
-[My] [mother] [was] [inclined] [to] [approve] [of] [my] [younger] [sister]'[s] [marriage] [to] [a] [man] [twice] [her] [age], [while] [my] [stubborn] [father] [wouldn]'[t] [consent] [to] [it].
+[My]  [mother]  [was]  [inclined]  [to]  [approve]  [of]  [my]  [younger]  sister's [marriage]  [to]  [a]  [man]  [twice]  [her]  [age] , [while]  [my]  [stubborn]  [father]  wouldn't [consent]  [to]  [it] .
 ### 419 ###
-[This] [micro]-[motor] [is] [less] [than] [one]-[twentieth] [the] [size] [of] [a] [rice] [grain], [hence] [invisible] [to] [the] [naked] [eye]; [you] [need] [a] [microscope] [to] [see] [it].
+[This]  [micro] -[motor]  [is]  [less]  [than]  [one] -[twentieth]  [the]  [size]  [of]  [a]  [rice]  [grain] , [hence]  [invisible]  [to]  [the]  [naked]  [eye] ; [you]  [need]  [a]  [microscope]  [to]  [see]  [it] .
 [a]:http://www.etymonline.com/index.php?allowed_in_frame=0&search=a
 [abandoned]:http://www.etymonline.com/index.php?allowed_in_frame=0&search=abandoned
 [abc]:http://www.etymonline.com/index.php?allowed_in_frame=0&search=abc
